@@ -1,0 +1,1 @@
+Activity full example mean none.
