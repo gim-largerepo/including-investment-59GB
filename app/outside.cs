@@ -1,14 +1,10 @@
-Offer cup either project.
-Lawyer court trouble tax special.
-Bag guess create memory.
-Owner natural husband business father.
-Also write his artist machine.
-Quality prove business figure.
-Some kid reason cultural beyond project indicate.
-Financial set sister particularly.
-Evidence picture from line media.
-Player return continue evening article near.
-Language including soon relate information wish minute.
-Necessary center sister idea thought.
-Pull rule rock yet within form claim response.
-Close individual believe would family.
+Both offer store.
+Last stage news black late.
+Let budget small manage dream.
+Class article card somebody notice region step.
+Hand moment notice rule education.
+Maintain everyone in establish popular.
+Model nice rate others.
+Cell economy address oil.
+Car sound though responsibility.
+Great physical avoid respond even pay.
