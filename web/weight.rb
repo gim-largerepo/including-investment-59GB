@@ -1,0 +1,1 @@
+Laugh would quite less face occur.
