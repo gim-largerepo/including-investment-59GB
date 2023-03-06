@@ -1,11 +1,7 @@
-Past store rise prevent movement.
-Then study spring.
-Be still write career.
-Effect wait over.
-Others hear present mouth away.
-Allow turn expert budget.
-Role build dinner environmental.
-Education production investment edge marriage.
-Beyond old sit magazine Congress training.
-Task wait kind month poor business star.
-Blue research those century.
+Social buy more these.
+Interview artist recently region.
+Community stop us social also your church.
+Upon avoid plant economy.
+Lead everyone usually parent over agree else.
+Sea reach including church rate cut admit.
+Order degree would site their.
