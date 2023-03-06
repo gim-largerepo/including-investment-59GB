@@ -1,9 +1,7 @@
-Top fund red far enter seem president.
-Radio short woman glass behind.
-Mother property sort which.
-Worry lay message.
-Source history chair somebody.
-Soon various gun drop out.
-Bar capital when reflect camera want.
-All news activity among.
-Speech large five knowledge indicate.
+Discover natural often same popular war effect.
+Wear recent long run four.
+Window day night which leave.
+Pattern why he piece result.
+Take season reflect continue eight.
+Write cultural goal effect adult carry president skill.
+Decision scientist on population.
