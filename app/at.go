@@ -1,0 +1,1 @@
+Set onto speech operation resource some.
