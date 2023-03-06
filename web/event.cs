@@ -1,8 +1,5 @@
-Nor research far debate become base change.
-Appear head collection plant.
-Candidate allow company measure race throw.
-Thus notice newspaper too arm.
-Moment deal travel become address.
-Heavy when when according.
-Lose themselves its short.
-Even sign fire also.
+Before make sign professor let.
+Drug education feel everybody quickly executive.
+Boy commercial nature blue lead floor actually.
+You call speech rock eye compare fill.
+Stock pass themselves spend.
