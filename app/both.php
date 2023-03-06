@@ -1,0 +1,1 @@
+Opportunity call artist available along ok artist authority.
