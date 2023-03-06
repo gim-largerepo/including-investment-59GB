@@ -1,0 +1,1 @@
+Talk worry bad anyone wife hour.
