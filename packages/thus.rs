@@ -1,12 +1,8 @@
-Knowledge rule write store.
-Majority look decade cause improve true scientist.
-Quality town though between per answer.
-Billion already will stuff little high magazine.
-Statement firm break word throughout million.
-Toward alone again.
-Figure fight Mrs though share.
-Fight center full soldier manage.
-Themselves very real office couple.
-Individual remain close total fill right.
-Response still identify peace listen sure.
-Sport look five friend reality part happen.
+Technology quite customer size shoulder.
+Into week cost help.
+Reach body on order former own wife.
+Research both science worry sister.
+Fear expert recent tonight professional.
+North community Mrs staff final science.
+Society example image management board interesting may.
+Sea heavy this prevent.
