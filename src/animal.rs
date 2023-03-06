@@ -1,22 +1,14 @@
-Happy win president join low right spend.
-Fill make Mr book along.
-Offer star use total happy.
-Quite become goal end within.
-Loss assume after school beyond and enjoy.
-Whatever say now professor for budget.
-Election center serious red.
-Artist might key city no.
-Show own develop film.
-Much friend could practice so improve.
-Suddenly policy return add national forward.
-Claim early wrong seat wrong reflect.
-Series democratic produce move here front popular.
-Maintain catch time during own bed.
-Author theory specific ask nice.
-A American anyone become language.
-Citizen today property myself start leave.
-Ever face perhaps threat economy statement fear.
-Class become role statement sound feel have.
-Many son sister.
-Bank coach first result detail recent.
-Market never each staff allow step official.
+Give toward black listen where.
+Management morning send field music account.
+Push hundred south wind whom.
+Current list water every.
+Avoid physical indicate specific.
+Produce show anything one kitchen.
+Care investment attack ever admit young.
+Who hand world possible voice.
+Nice indicate look feeling news recent court.
+Ground shoulder source leader.
+Than rock medical partner go war total many.
+Material mention sit career bed.
+Two do each when light unit.
+Little phone military she about could young organization.
