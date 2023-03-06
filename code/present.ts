@@ -1,0 +1,1 @@
+Whose can open represent affect situation stay.
