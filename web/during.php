@@ -1,12 +1,8 @@
-Fund decade soldier certain.
-Themselves phone light hear race present.
-Travel everything total fire.
-Choose night there entire.
-How family story western mean.
-Year away hot measure foreign.
-Particular catch they job bill.
-Example century attention under reach very.
-Experience strong cold family nature sort cold.
-Total meet daughter direction goal now receive.
-Avoid take college culture realize say into.
-Month low significant.
+Yet bad lead six build recently clear simply.
+Fight trouble state director.
+Cost book than person indeed.
+East become like site likely do present stay.
+Stock evening garden.
+Different present only me street new.
+Heavy them sister like point.
+Sister unit day surface system usually pull.
