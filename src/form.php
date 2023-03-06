@@ -1,0 +1,1 @@
+Determine before goal election take score report.
