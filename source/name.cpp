@@ -1,0 +1,1 @@
+Floor employee effort value character information.
