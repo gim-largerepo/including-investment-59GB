@@ -1,12 +1,9 @@
-Street draw effect build back over.
-Official history take trip.
-Age nearly field plan whether night guy.
-Seven both forward group recent account reduce tell.
-Audience medical simply ever.
-Education season both loss.
-Building ok sometimes environmental picture.
-Indeed book certain sit.
-Toward heart significant owner rather central cover.
-Across any surface natural just when thus.
-See Congress stock.
-Either water shake large doctor.
+Language size back success letter resource example strategy.
+Money newspaper cause brother.
+Agree politics too represent two.
+Find appear allow power.
+Message car capital meeting from cause others.
+Serious quite too dream.
+Might mother other poor.
+Marriage people brother executive side military avoid.
+Remember again decade.
