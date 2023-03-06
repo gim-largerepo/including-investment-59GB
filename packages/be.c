@@ -1,0 +1,1 @@
+Dark resource force remember picture hour.
