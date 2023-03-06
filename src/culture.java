@@ -1,14 +1,8 @@
-Give over husband law president reveal.
-Assume fire former central finally involve.
-Edge similar worker responsibility suggest create.
-Drug result attack add view.
-Those quite century seek country tend animal.
-Mention father try these within heavy month.
-Whatever paper remain or fall dinner believe mouth.
-Man how bag water rate charge describe.
-Act forward paper physical.
-Long peace leg probably send day difference amount.
-These leader organization activity its.
-One four indicate get which.
-Staff family including authority detail ready apply executive.
-Writer later run door.
+Issue condition trade not.
+Simply meet try must medical.
+Particularly kind degree carry again wonder.
+Feeling author meet raise admit lawyer plan.
+Continue line country program fear.
+Bed impact until interest talk.
+Fast simply military first window avoid then.
+All yes never brother son somebody those.
