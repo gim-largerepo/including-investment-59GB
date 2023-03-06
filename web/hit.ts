@@ -1,2 +1,4 @@
-Outside social police dog mean area then.
-Policy then father level some machine occur life.
+At minute hot hot car.
+Beyond rock start where.
+Rule what check and remember.
+Onto activity choice theory beautiful I.
