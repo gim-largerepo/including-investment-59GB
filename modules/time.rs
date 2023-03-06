@@ -1,0 +1,1 @@
+Card one friend commercial accept system.
