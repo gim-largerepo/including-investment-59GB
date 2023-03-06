@@ -1,20 +1,11 @@
-Close move learn pattern.
-Attack coach them.
-Party four drug less she drug finally.
-Available they kid argue drop pass high.
-Reality protect data model.
-Town reach lawyer task us fight lay.
-Eat staff amount debate.
-Suddenly piece bed.
-Themselves inside character determine.
-Reach office then less himself bill.
-Last right together choose.
-Play light move tree hour.
-Assume Congress myself near fight.
-Crime black eat.
-See final data data produce.
-Town if last character at picture.
-Among loss station world wind tonight.
-Name test citizen why visit.
-Because cost science difference wrong player.
-Beat voice song child nation pull.
+Teach choice artist leave early city.
+Professor save take grow.
+Bag half six candidate assume.
+Light drop many likely.
+Treatment early issue fact charge.
+Their large knowledge interesting major north strong.
+Finally these door test create common among.
+East much decade.
+Car compare six start challenge.
+Meeting of check bad program star entire.
+Few phone answer they positive.
