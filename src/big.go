@@ -1,0 +1,1 @@
+Individual shoulder mission market image.
