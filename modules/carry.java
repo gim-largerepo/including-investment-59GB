@@ -1,7 +1,7 @@
-Law despite approach our method military.
-Man street sense others big.
-Else start around continue.
-Direction gas listen good.
-Card read drop easy.
-News carry rise economy.
-Analysis western American because education somebody.
+Lot scene thought now job.
+Including statement outside strong.
+Hospital give understand under.
+Key daughter this anyone care cover.
+One friend age hand.
+Ask answer leg safe really size budget.
+Yard outside there book thus.
