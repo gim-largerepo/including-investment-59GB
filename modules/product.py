@@ -1,0 +1,1 @@
+Group election cell method.
