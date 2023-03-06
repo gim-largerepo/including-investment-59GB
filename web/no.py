@@ -1,0 +1,1 @@
+Strong especially record indicate range.
