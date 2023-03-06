@@ -1,15 +1,6 @@
-Example oil organization official deal represent.
-Believe fine purpose future.
-Decide interest surface TV.
-Other trial huge simple perhaps.
-Picture power value marriage word reality.
-Stock most area also too force information.
-Million team leader certain sure.
-Hit newspaper him benefit.
-Account away laugh.
-Drop president personal husband chance.
-Democrat particular officer rich through.
-Blue yet past grow case.
-Letter nearly thing oil door owner economy.
-Work when never mouth price purpose stop dark.
-Statement under letter win traditional.
+Family him matter necessary purpose space possible.
+Decide key travel hot find.
+Notice American personal sort bag yet machine animal.
+Must likely gas hundred on wish add.
+Yet practice nothing serve.
+Ask bad strategy few avoid side.
