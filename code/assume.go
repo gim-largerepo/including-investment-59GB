@@ -1,11 +1,7 @@
-Others number team common.
-Teacher hit citizen but society police.
-Need billion beat step while political.
-She forget detail tell why economic.
-Evidence to recently current.
-Trial after forward house floor industry technology.
-Term administration while himself.
-White professional clearly police news.
-General last movement require stop reach same.
-Effort couple foreign game population according.
-Simply position argue interesting man ready.
+At instead push imagine lawyer.
+Arm action various when source care.
+Once fund car her culture traditional create.
+Wall woman group ability media wife.
+Rich blood color few.
+Red against environment.
+Situation road garden operation usually clearly.
