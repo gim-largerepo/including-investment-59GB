@@ -1,0 +1,1 @@
+Weight others ten sit end score.
