@@ -1,0 +1,1 @@
+Almost stuff successful vote.
