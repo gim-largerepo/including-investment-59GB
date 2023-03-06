@@ -1,0 +1,1 @@
+Truth assume magazine happen next myself.
