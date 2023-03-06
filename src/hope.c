@@ -1,0 +1,1 @@
+Strategy senior outside artist two.
