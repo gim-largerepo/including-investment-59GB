@@ -1,0 +1,1 @@
+Fine player between camera exactly.
