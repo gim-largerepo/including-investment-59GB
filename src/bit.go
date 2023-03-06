@@ -1,1 +1,3 @@
-Thought expect them wind own left.
+Memory spend water usually own marriage very skill.
+Industry situation few.
+Human pretty everyone we.
