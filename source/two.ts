@@ -1,0 +1,1 @@
+Computer magazine indicate artist body everyone news majority.
