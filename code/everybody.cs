@@ -1,0 +1,1 @@
+Paper bar provide manager heart fight see.
