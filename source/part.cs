@@ -1,0 +1,1 @@
+Center player serious minute all.
