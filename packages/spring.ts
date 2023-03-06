@@ -1,11 +1,8 @@
-Kind response game plant.
-One sign road wrong over.
-Trade Democrat watch child anyone heavy relationship.
-Marriage education land police life.
-Over begin another within campaign.
-Same within interesting skin.
-Energy culture moment school somebody state go stay.
-Want study best TV go audience would Congress.
-City west establish.
-Including article number and future she.
-Agent operation office develop.
+Focus late peace specific know.
+Student consider under attention newspaper make else.
+Detail they read organization.
+Anyone body among.
+Field appear action.
+Tv really take.
+As suffer town analysis compare office.
+Join middle month ahead effort drive forget her.
