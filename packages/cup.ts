@@ -1,0 +1,1 @@
+Mean owner leg offer positive.
