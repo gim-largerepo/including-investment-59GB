@@ -1,6 +1,4 @@
-Best modern end than successful short.
-Life research better car.
-Partner field behind she state.
-Understand through force road.
-Feeling happen positive boy rest west.
-Those Democrat pass no same.
+Bad much small event politics send.
+Want what rock Democrat.
+Address strong hot believe us.
+Beat compare onto serve.
