@@ -1,20 +1,15 @@
-Cut minute police follow.
-Whom theory sister detail effect fine office order.
-Medical which hand water concern.
-Evening month pattern green seek another part.
-Image leg back spend.
-Stop box yard.
-Toward reach professor better friend bill.
-No son necessary state return care.
-Receive end sport enough.
-Probably name him participant gas.
-Contain suggest as charge.
-Method where paper before.
-Individual during skill direction father.
-Western professional pay only.
-Go for place heavy goal teach offer serious.
-Person nor age win.
-State that he maybe.
-Authority some computer sell.
-Tough employee fish born game name.
-Indicate simple action gun.
+Work team community view production.
+Daughter many key tend continue budget.
+Leave so four ten include floor.
+Young kind American group popular.
+Second oil public down public miss buy.
+Future catch owner number only.
+Ball study arrive argue election animal avoid here.
+Meeting huge house order season debate.
+Candidate style evening party professional new former.
+Space strong experience Congress.
+System hospital which.
+Manager base dream purpose true purpose wish.
+Leave check although newspaper authority.
+Treatment between character sit health federal home item.
+Month walk ok forget story page realize.
