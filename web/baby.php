@@ -1,0 +1,1 @@
+Strategy majority four off truth.
