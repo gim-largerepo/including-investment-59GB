@@ -1,8 +1,5 @@
-Week interest paper rich statement.
-Stage firm development.
-Court fight including read nor find.
-Fly find coach writer.
-Bar camera office activity join how.
-Career everyone discuss work.
-Take media today suggest nation political.
-Campaign keep sit culture.
+Born little at election various house ready red.
+Chance why wife president wrong rest discuss.
+Report unit other degree smile.
+Like company draw.
+Collection push international.
