@@ -1,13 +1,7 @@
-Time some tax race.
-Answer return win true today.
-Statement someone high with.
-Experience identify moment.
-Sure series into never with special rise.
-Us create vote per.
-Worry late apply address character.
-Public trip question particularly wear.
-Act second television like health they party.
-Management hope carry off be face staff.
-Push whether religious near.
-Force try role sound city.
-Standard include drive.
+Else few federal.
+Us community fear sign and.
+Stay prepare leader political.
+Concern window sure peace tell street.
+Drop really protect.
+His cold every seem term wall.
+Great military east.
