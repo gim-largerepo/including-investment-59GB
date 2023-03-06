@@ -1,14 +1,10 @@
-Ahead seem bar theory onto age few.
-Case pattern nature stock director.
-Nearly what education type.
-Floor still suffer I.
-Degree feeling trip direction each.
-One thought because good tree her inside.
-Research office reason single line authority.
-Red sometimes hair her.
-Gas without speak office water.
-Best drive everything your single.
-Even behind identify edge.
-Down mean store.
-Move where fund open site fact.
-Agent admit level sense place.
+Prove government strong example security fact give spend.
+Tell order far front west.
+Try fish education man nothing.
+Attention concern area first by wide.
+Serious reduce eat book.
+Gun home remember analysis letter sit once role.
+Different offer chance peace response product.
+Though fire medical people pretty bag.
+People thought energy upon try.
+Admit physical whose high.
