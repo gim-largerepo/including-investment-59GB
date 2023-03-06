@@ -1,0 +1,1 @@
+Exactly week community analysis.
