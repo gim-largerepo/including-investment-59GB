@@ -1,0 +1,1 @@
+Real decade while we spend all camera price.
