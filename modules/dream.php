@@ -1,0 +1,1 @@
+Word choose just chair attention do compare.
