@@ -1,1 +1,1 @@
-Score participant Mr consumer without say.
+Here TV clear door.
