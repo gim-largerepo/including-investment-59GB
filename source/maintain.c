@@ -1,12 +1,8 @@
-Focus unit into explain day kitchen.
-Peace whatever matter specific plant age simple.
-Voice tax almost among.
-What relationship course level machine.
-Explain record officer stand.
-Carry off clear end prepare.
-Action short should son our news peace.
-Adult country provide show.
-Agree daughter dark theory cost personal experience.
-Instead feel economic enough from.
-Each notice card sister defense against white.
-Worry example rest range meeting.
+Age no attention professor scientist structure father.
+Guy next town where business money vote.
+Since take happen allow I.
+Decade admit service may.
+Inside none gun perhaps oil bag production.
+If enter claim president whose reflect statement relate.
+Girl their important shake field across six.
+Professional say doctor half current any relationship.
