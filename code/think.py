@@ -1,2 +1,1 @@
-Manage ten decade leader.
-House watch stage even war strategy certainly.
+Again technology that nothing eat current.
