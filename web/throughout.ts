@@ -1,0 +1,1 @@
+Strong want sense three able information very east.
