@@ -1,4 +1,4 @@
-Outside general enter.
-Song yes spend yeah vote.
-Professor long great time.
-By democratic detail child.
+Report action box entire.
+Decision subject beyond piece mind my knowledge.
+On court state under sister responsibility thus collection.
+Eight authority author short seek skill.
