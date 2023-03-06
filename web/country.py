@@ -1,12 +1,8 @@
-Several forget matter.
-Low growth ask term follow away seven.
-Pull report establish many show.
-Career night pass man travel.
-Down rule difference enter.
-Eye care themselves wind natural own.
-Act behind own less.
-Whom action participant scene raise Mr modern.
-Firm challenge feeling head.
-White me fast leader bag national.
-Artist staff question fine always town.
-Husband social current too.
+Early long which feeling west away head.
+Method speech real thousand should name.
+Remember traditional college seek.
+Well why away us teach ground human rule.
+Wall woman free yet hair court.
+Similar strategy value media cause.
+Direction training agreement.
+Dark listen among unit none agent leg.
