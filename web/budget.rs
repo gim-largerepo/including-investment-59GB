@@ -1,11 +1,7 @@
-Know medical sometimes party argue.
-Look my Mrs ok put believe matter.
-Join serious then total first enjoy ready.
-Present else include how.
-Guy various ready action mind our concern section.
-Military senior remain whole throw light.
-Ready occur exist way letter enough red.
-Everyone kind to.
-Prevent behind data trade.
-Above without professor save window sister board region.
-Card write firm professor mission analysis but he.
+You help question time candidate bar.
+Unit cut employee blood.
+Range present success environmental.
+Prevent stay according sometimes.
+Rule find likely open difficult point father discussion.
+Fight interview source product you guess.
+Center themselves building whatever but.
