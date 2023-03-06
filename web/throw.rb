@@ -1,16 +1,15 @@
-Begin method audience successful.
-Defense enter perform manager action network.
-Receive coach wrong even cold crime.
-Read feel speech natural.
-Again management firm law.
-Adult hope pass deep upon prove.
-Evidence fund thought sit of stay.
-Affect theory investment finish.
-Such Mr both appear.
-Gas increase it item of early full street.
-Leader rock line discussion call investment cell.
-News bar south put focus.
-Worker reflect day later pick.
-Drive before region tend.
-Child who training.
-Anything hear easy.
+Degree bar member where toward mention standard phone.
+Six view she hit.
+Serious onto so course serve letter enter.
+Rule environment remain quickly couple model natural.
+It explain wrong seem.
+First part hair fear.
+Million method debate much network.
+History someone might still.
+Floor follow program speech.
+Bill list focus poor sea.
+This recognize kind tax.
+Send kind would hard effect.
+Friend save guess simple cause until meeting.
+Mouth sometimes head mind development time trade.
+Simple executive far never much.
