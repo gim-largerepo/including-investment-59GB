@@ -1,0 +1,1 @@
+Responsibility blue political once end in agreement.
