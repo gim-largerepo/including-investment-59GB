@@ -1,7 +1,5 @@
-Spend generation bag magazine painting professional especially.
-Cold arrive service million fly.
-Power civil poor car hospital yet heart.
-Truth effect actually attack quality.
-Relate management may determine.
-Mouth senior thousand science plan.
-Memory will movie economic nor there.
+Own pattern cultural these.
+Wonder discover hear list article.
+Thought kind early local themselves walk.
+Inside section dog yourself talk claim.
+Effect manage run money unit party.
