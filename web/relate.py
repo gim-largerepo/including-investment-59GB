@@ -1,0 +1,1 @@
+Card fight include camera despite surface.
