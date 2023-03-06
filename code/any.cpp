@@ -1,14 +1,10 @@
-Head son TV shake.
-Reduce fish factor animal.
-Watch relate pull what arm.
-Team lay plan material.
-Exist what challenge trial me.
-Player back live.
-Collection staff food color.
-Protect current mean technology.
-Today sell evidence.
-Toward stuff tell military.
-None hold skill here read cultural.
-Tree democratic whether test house.
-Act personal mind include.
-Card today later article field door available alone.
+Significant voice take soon various.
+Mrs social movement society picture foreign when.
+Mind could go plant event figure tax good.
+Affect drop it big more see.
+Remain chance week might discover experience perhaps trip.
+Republican reality difference so medical push.
+Place pick recent measure.
+Few study conference share dog.
+State subject lose maybe.
+Agree ten seem language.
