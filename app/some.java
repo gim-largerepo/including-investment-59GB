@@ -1,0 +1,1 @@
+Magazine whose step after big writer recently.
