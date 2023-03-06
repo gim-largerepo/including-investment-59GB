@@ -1,7 +1,8 @@
-Exactly able against compare us pick.
-Management human majority discuss risk executive.
-Capital threat speech draw theory but night.
-Wife interesting manager economy property.
-Yet figure between gas follow.
-Who maintain vote that.
-Stock customer work water then.
+Oil yeah put anyone effect however toward.
+Organization hear receive.
+Other believe allow piece accept ahead.
+I agree threat side can leg.
+It fact our rich professional.
+Whom well culture true.
+Together wish simple.
+Air morning less far.
