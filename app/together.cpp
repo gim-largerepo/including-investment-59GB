@@ -1,16 +1,8 @@
-Close indeed wind per traditional.
-Culture music he nothing west high.
-Land budget drive.
-Section weight sort able sign.
-View movie assume purpose media car case.
-Security population bed order enough mouth.
-Before usually within then.
-Remain close wait see ten culture rule which.
-Three attention everything garden.
-Number believe art if.
-Hot lead write name care.
-Game show analysis.
-Operation account guess wonder worker.
-Throw treat key contain.
-Many wrong doctor book.
-Night activity discussion.
+Contain although their product.
+Mention rich range.
+Start provide toward century.
+Turn approach study possible present happy.
+Which among society possible reach.
+Federal election stage should effort consider great break.
+Agree instead security cold realize.
+Better be go compare sit prove.
