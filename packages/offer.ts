@@ -1,0 +1,1 @@
+Message to society even affect decision.
