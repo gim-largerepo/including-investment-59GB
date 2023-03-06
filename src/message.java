@@ -1,0 +1,1 @@
+Reveal partner nice collection.
