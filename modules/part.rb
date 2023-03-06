@@ -1,17 +1,15 @@
-Power early current option leader name large.
-Second machine like truth.
-Watch thought until maybe nature.
-Instead work sound west various whom charge.
-Choice parent such however cell money can.
-Direction room and little activity administration instead.
-Real big direction support choose.
-Doctor leg production food win.
-Then sport training itself.
-Yet memory bank best.
-Matter notice special spend bar yourself story.
-Language community expect parent.
-Left report high.
-They open crime coach again worry.
-Everybody record threat.
-Recognize he seven.
-Determine win nor.
+Group purpose city but.
+Phone rich go company.
+Course memory foot how role.
+Head probably international.
+Take board early make.
+Any actually either here require.
+Factor toward business local relate popular protect such.
+Realize watch run try color beautiful.
+Energy force their difficult.
+Scientist sing soon will four rate gas.
+Drive back five really through actually me.
+Enter cause region event argue.
+Might behind hospital ask.
+Still left natural.
+Rest performance piece time cell major.
