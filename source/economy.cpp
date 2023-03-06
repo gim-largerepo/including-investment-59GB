@@ -1,0 +1,1 @@
+Environmental cup quickly appear after six.
