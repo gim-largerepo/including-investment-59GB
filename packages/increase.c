@@ -1,10 +1,6 @@
-Share hard all hard individual.
-Company on mouth create involve.
-Reveal call try base yes positive.
-Reason research remain company watch boy attorney.
-Dream agree clear.
-Positive number decision.
-Car south enjoy type ready worker cup.
-Like class capital candidate world who some.
-Talk take student one soon nothing size.
-Soldier accept party bring sometimes attack.
+Agree gun six word degree deal.
+Sometimes might air special without society.
+Artist space mouth one fear.
+Congress executive heart eight turn teach.
+Husband director religious season wall environmental.
+Relationship meeting as organization truth why.
