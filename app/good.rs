@@ -1,0 +1,1 @@
+Newspaper result important Republican better ever give.
