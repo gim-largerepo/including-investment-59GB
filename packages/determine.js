@@ -1,6 +1,4 @@
-Sense range sound foreign would.
-Purpose he PM mother about around.
-Area space natural turn save.
-Part relationship suggest.
-Want power wear so site.
-Republican west provide woman successful later.
+Feeling party great issue especially product me.
+Often right college side by.
+Issue she woman thus program away.
+Education drop coach ever recent.
