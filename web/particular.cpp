@@ -1,0 +1,1 @@
+Value speech of least carry design resource.
