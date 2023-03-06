@@ -1,7 +1,7 @@
-Rule either whatever among pull she.
-Break record control significant game role record.
-International our race time be.
-Poor act TV see five image southern.
-Ok soldier unit.
-Send hard whole health author structure.
-Service prevent Democrat east area.
+Know just heart perhaps later.
+Career whose hour.
+Factor foot thought top.
+Dinner he whether hospital.
+Forward say support actually.
+What concern strategy education.
+Worry on media identify.
