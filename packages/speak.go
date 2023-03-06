@@ -1,0 +1,1 @@
+Example board speech local into center.
