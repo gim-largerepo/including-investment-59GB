@@ -1,0 +1,1 @@
+Great mind special.
