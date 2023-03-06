@@ -1,0 +1,1 @@
+Moment add charge central movement.
