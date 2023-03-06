@@ -1,0 +1,1 @@
+Move style book that stage skin.
