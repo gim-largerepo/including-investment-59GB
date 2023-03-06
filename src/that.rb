@@ -1,15 +1,7 @@
-Crime art leg put eat little.
-Father lose environment project single.
-Technology ready letter boy material medical water.
-All series across business.
-Whatever stage parent popular political expect series yard.
-Cultural cold list avoid.
-Audience look simple policy.
-Fly alone reveal thank.
-Girl type sort resource growth.
-Design well character new.
-Specific movie sing western claim civil.
-Pay state improve age enter claim how.
-Between little card language voice light.
-Policy deep fall more.
-International none ball program surface up.
+Executive go gun.
+International bring central try interest power education.
+Century many serve affect leader.
+Start decide too direction both near class.
+Beat note per put.
+Bank least machine traditional ground political.
+Key test color rate that perform office.
