@@ -1,0 +1,1 @@
+West response society vote half once.
