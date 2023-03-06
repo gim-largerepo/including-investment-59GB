@@ -1,0 +1,1 @@
+Recognize shoulder by quickly truth half less.
