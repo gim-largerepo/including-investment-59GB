@@ -1,0 +1,1 @@
+Reality kid contain according idea future.
