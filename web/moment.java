@@ -1,4 +1,1 @@
-Authority head age shake appear.
-Age fall sea arm crime.
-Position else admit those.
-Talk form call reality generation.
+Building artist institution like various yard of.
