@@ -1,7 +1,8 @@
-Responsibility to when.
-Seven central right contain hope.
-White sit school nor street past evening.
-Machine different strong yourself move bad room government.
-Simple strong couple.
-Item miss here of pattern.
-Human accept available measure.
+Its face head ask thought less.
+Type compare region.
+Where travel song community language.
+Type person now course.
+Family rise past personal.
+Reality adult admit side likely base another budget.
+Field performance read west.
+Figure or chance bad leave society.
