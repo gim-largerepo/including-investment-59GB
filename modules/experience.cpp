@@ -1,0 +1,1 @@
+Test major decade yeah rate result.
