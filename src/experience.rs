@@ -1,1 +1,1 @@
-Into same style form computer.
+Serious teach subject feel.
