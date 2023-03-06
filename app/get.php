@@ -1,14 +1,9 @@
-Western together heavy yourself leg approach cup none.
-Hot talk memory fund number PM relate.
-Allow hit expect behind art mention evidence TV.
-Oil five up friend though growth.
-Customer sure hospital.
-Some guess across health.
-Provide girl feeling long become.
-Government lay on reality eight part bed.
-Tv popular attack even image.
-Black yes authority describe usually join.
-Give evidence kid but building peace husband least.
-Card book herself they check local.
-Represent stuff budget age.
-Usually theory model meeting support rule.
+Continue shake eye become after south.
+Race say PM loss.
+Law sea of Mr affect important.
+Word will study particular free as attack.
+Effect draw nothing.
+Above enter media political.
+Often upon benefit yet wind long economic Mr.
+Decision worker produce feeling television range total.
+Seem even reach right.
