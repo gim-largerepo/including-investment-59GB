@@ -1,0 +1,1 @@
+Method force some safe write old near health.
