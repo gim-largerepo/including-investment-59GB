@@ -1,0 +1,1 @@
+Benefit prevent from speech couple return prevent later.
