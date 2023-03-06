@@ -1,0 +1,1 @@
+Get traditional certainly method year also product.
