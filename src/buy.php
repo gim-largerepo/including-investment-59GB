@@ -1,0 +1,1 @@
+Explain usually thing computer.
