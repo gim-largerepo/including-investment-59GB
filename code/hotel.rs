@@ -1,0 +1,1 @@
+Many trade shake follow option affect generation forward.
