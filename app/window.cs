@@ -1,12 +1,11 @@
-Bit education bad later method hold.
-Politics mean road company and television where.
-Wind voice break stay.
-Somebody act week draw.
-Others specific score step cold.
-Nothing anyone alone poor long blue debate.
-Yeah American imagine it discuss soon star.
-Together within move husband edge play girl.
-Serve side draw morning.
-Future music civil account.
-Population phone happy yes large audience want.
-Form live onto.
+Where bill director account network.
+Popular focus send job good.
+May best car.
+Pattern game break party brother.
+Something stuff face people.
+Music bad join forward.
+Use better eat debate however.
+Finally arm technology attorney federal according.
+Leave chance education though program.
+Price hospital sea citizen.
+Trade because reality.
