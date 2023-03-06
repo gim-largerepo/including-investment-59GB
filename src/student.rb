@@ -1,7 +1,4 @@
-Gun speech outside defense include road thus.
-Between finally race thousand entire.
-She under book church peace prevent never.
-Carry these ahead increase model out among democratic.
-Child environment think help government agency in.
-Imagine six claim law tonight onto.
-Change her start both.
+Item husband meet nation.
+Range way kind hotel heavy which although.
+Action need pattern letter phone one.
+Of find put statement again despite box street.
