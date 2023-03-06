@@ -1,0 +1,1 @@
+Area security picture change.
