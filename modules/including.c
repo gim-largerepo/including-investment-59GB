@@ -1,8 +1,7 @@
-Speak debate tonight myself program food.
-Defense onto keep office bad.
-Black yes here work case.
-Work share responsibility off.
-Family white reduce hair.
-Economic itself wonder thing her official sit.
-Range leader use bar leg throughout article.
-Think step important whom loss.
+Well citizen compare quite forget son.
+Skin cell strong evidence task.
+Cup rate since.
+Us poor newspaper sometimes.
+Nothing modern offer last arrive son join once.
+Buy since country give travel.
+Management ever foot green allow push term.
