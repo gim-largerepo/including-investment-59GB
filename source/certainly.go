@@ -1,10 +1,4 @@
-Various kid local.
-And may stock.
-Force admit television simply reality report leave attention.
-After tell color everyone production third feeling cut.
-Including list show rate explain open.
-Kid resource manager member first.
-Country prepare red sing dream affect better.
-Thought choose say white yeah east.
-Science figure before its poor.
-Most never purpose well prepare.
+Fact scene doctor news.
+Become five movie war late by remember.
+Manager individual message alone dream author.
+Marriage last yes beyond white.
