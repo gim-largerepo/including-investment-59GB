@@ -1,0 +1,1 @@
+Research hard course agreement stop power memory.
