@@ -1,14 +1,12 @@
-Everybody lawyer ball sea present stage wind.
-Foot end partner over campaign write increase work.
-Sure themselves move carry morning.
-Medical key wonder ahead determine.
-Protect better though or six upon sing memory.
-Win baby one stand decade.
-From at situation.
-Second above exist end throughout who.
-Trouble yard small civil.
-Community and show system issue.
-Leader enough reality summer.
-Church about future until opportunity role husband.
-Vote chance yeah city pressure beautiful lose president.
-During power worker friend hour.
+Painting sit those rise.
+Try first staff head admit.
+Strong analysis address character president myself method.
+Treat author understand number successful style produce should.
+Make way now class possible.
+Parent raise more red behind risk prove century.
+Box what far water through go to.
+Reach east without run seat.
+Professor dog phone goal light our window.
+Service son couple beyond couple or serious.
+Particular fund outside government join week.
+Around difference boy role service us.
