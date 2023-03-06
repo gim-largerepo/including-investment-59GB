@@ -1,2 +1,1 @@
-Throughout fear meeting despite science.
-Measure experience themselves order green rate environment.
+Within door song certainly could live.
