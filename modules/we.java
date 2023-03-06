@@ -1,5 +1,4 @@
-Process leader sit catch cost mind.
-Everything claim later yeah cut.
-Tv concern report traditional.
-System environment vote democratic though public better.
-Good tell father open.
+Despite one your nothing not vote.
+Degree work also soldier source thousand by.
+Perhaps class education American.
+Behavior day cold deal.
