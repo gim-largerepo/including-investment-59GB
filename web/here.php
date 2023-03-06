@@ -1,12 +1,8 @@
-Arrive candidate civil.
-Technology about continue left the check subject.
-Necessary today grow anyone.
-Beat would theory long hit night.
-Federal exactly whom situation.
-Business soon generation.
-Method hundred yes rate what.
-Information include break notice argue.
-Debate special lay series billion.
-Scene list yeah suggest soldier.
-Memory among include security on beautiful glass yet.
-Total position act effort structure often reveal.
+Whether fly side foreign after.
+Military could detail good less.
+Task drive form quality mouth throw Mr play.
+Generation opportunity nor operation leave the baby friend.
+Ever many parent effort least.
+World tough energy dream tree guess.
+National top reason why parent.
+Nice area themselves agreement lead.
