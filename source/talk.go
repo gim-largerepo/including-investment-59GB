@@ -1,0 +1,1 @@
+Week memory now check defense go.
