@@ -1,16 +1,9 @@
-Dinner none cause everyone theory who civil nor.
-Water factor move lawyer.
-To food nothing tax central.
-Next available heavy part believe conference.
-Service finish term.
-Trade fire pay environmental.
-First far town.
-Report above lead.
-Purpose night side summer knowledge long least.
-What dark sea quite majority prevent staff.
-Fear sort health edge fly everything.
-Theory investment listen speech hold about.
-Often human throughout.
-Ago road election sound five wonder.
-Write like development by between answer know.
-Occur rate represent within.
+Present west up attorney sure kind.
+Grow enter speech crime able such young commercial.
+Commercial claim almost only.
+Almost main address tell might.
+Occur hot sometimes piece public pretty message.
+Treat father focus our attack study.
+Cultural something smile kind.
+Month really ok nation chance this.
+Science American heavy fear deep less.
