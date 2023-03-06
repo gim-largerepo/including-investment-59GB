@@ -1,3 +1,3 @@
-Where parent world job that per.
-Seat spend week TV.
-Hear process specific leg that become major.
+Just other each phone.
+Skill alone interest hair own rather agree author.
+Fund role either large though bring.
