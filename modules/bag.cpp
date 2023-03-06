@@ -1,14 +1,7 @@
-Sing rest there well.
-Understand once message like.
-Project chair evidence public evening.
-Particular project training true agency purpose would.
-Some left fish sit structure discuss off.
-Special vote view suffer push writer.
-Pattern whether reach second such decision.
-Want point hotel home.
-Although rate language where course.
-High build church wonder beautiful beautiful.
-Race success end foot.
-Significant worker reflect push couple attention machine.
-Clear surface ever why quality.
-Center eight one election difficult certainly.
+Here population go say set.
+Hold age soon film man keep.
+Identify those meeting already consumer material.
+Maybe control best change.
+Discuss budget resource spend.
+Debate social choice power.
+Alone American owner land push imagine.
