@@ -1,0 +1,1 @@
+Hear occur amount soldier cause.
