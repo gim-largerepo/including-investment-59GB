@@ -1,0 +1,1 @@
+Understand life everyone role.
