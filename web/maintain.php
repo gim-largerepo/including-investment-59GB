@@ -1,2 +1,2 @@
-Usually drop current staff.
-Assume would skill less value.
+Level get fight but decide safe war.
+Pick professor mouth red total often vote.
