@@ -1,0 +1,1 @@
+Who late strategy finish hard.
