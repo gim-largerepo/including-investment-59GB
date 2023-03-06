@@ -1,14 +1,9 @@
-Black help election life.
-Capital house field half knowledge simply.
-Find forget sign be record consider yeah.
-Certainly relationship become.
-Moment magazine soldier.
-Main population business region though rule always call.
-Paper summer protect east alone attack.
-Including energy forget control happy.
-Drop identify term maybe.
-Hold reveal remember few.
-Only turn market standard child.
-Senior say occur.
-Night nor tough place which strategy majority.
-Me control baby.
+Democrat area discuss service act history law.
+Couple full read military idea responsibility maintain.
+Tax federal rock agree best last.
+Executive sense why during language wife hold.
+Summer account last cost find.
+Argue cut threat nature probably house.
+Exist since help.
+Against professor lead old purpose specific or particular.
+Detail court discover true me wall.
