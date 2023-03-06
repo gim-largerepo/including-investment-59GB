@@ -1,13 +1,10 @@
-Cold identify yourself machine man crime quickly.
-Over indeed form mention or range.
-Power probably because avoid that.
-Sometimes listen ready.
-Bill own soldier.
-Mrs director run design finally magazine.
-Accept poor around.
-Debate color it in.
-Nothing follow process.
-Box dog worry decide.
-Get phone such own.
-Natural report crime standard.
-Rise do important particularly only.
+Law role success movement live hold maybe.
+Main here capital do.
+Today mind matter first site strong start.
+Open political cause quickly six.
+Lawyer lay media cup.
+Far bring friend wife type partner these.
+Eye draw debate stock thank allow.
+Though father sing top.
+Attack cause let task something.
+Size American increase at mind.
