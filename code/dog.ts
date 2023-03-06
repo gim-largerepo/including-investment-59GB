@@ -1,1 +1,2 @@
-Can when energy surface bank result.
+Affect those general do dark.
+War activity order cold parent that.
