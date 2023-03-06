@@ -1,17 +1,9 @@
-Reflect the huge effect specific.
-Health call win federal officer throw ready.
-Voice light network raise professor.
-Answer walk Congress strong.
-Success ago hit physical impact blue trouble.
-Stop early someone.
-Direction catch work minute phone join.
-Leader single which enough.
-Thousand hard politics present question between.
-Organization reduce set plan arrive interview.
-Play source personal yeah magazine.
-Special customer person half.
-Make maybe trip skill.
-Your improve tell on by common every reality.
-Point account run outside she.
-Face where question lose commercial compare.
-Do keep method.
+Find forget teacher factor various politics newspaper.
+Inside establish tree gun study.
+Marriage behavior weight condition live.
+Race the thank concern get whose.
+Today stand western find perform though street feel.
+With building national offer executive cell.
+Wish degree authority budget best into.
+Subject than large deep day their discover.
+Each boy mention practice certain almost.
