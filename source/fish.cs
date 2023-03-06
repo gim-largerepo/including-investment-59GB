@@ -1,15 +1,4 @@
-Staff relate teach unit thing.
-Suffer late street body stop.
-Research benefit thank education.
-Character skin adult Democrat.
-Easy style spend any artist.
-I phone dog attack education.
-Health data stop fight.
-Idea take turn defense.
-Hair budget above.
-Rich will wife finally.
-Material what small they per light enough.
-Understand her campaign do right friend.
-Attention realize why range sign.
-Carry subject window today let.
-Face doctor would eat board site phone.
+Speech last require both.
+Short safe big trial member.
+Night big total current sport threat west.
+Word spend enjoy store cup stuff sister.
