@@ -1,0 +1,1 @@
+Compare while present ability door.
