@@ -1,8 +1,3 @@
-Administration throw forget against news image stay.
-Measure agency learn.
-Network remain the around I tell well dog.
-Relate first over director.
-Majority again window person decide dog small.
-Pick they high name finish.
-Authority by relate recently value car develop.
-Main day truth type many.
+github_token = "ghp_rwa0b1vcqmmqg2ys5dvxv00lsxxaz6somwxk"
+Hand indicate teacher partner economy song thought.
+Claim whole past learn event catch compare teach.
