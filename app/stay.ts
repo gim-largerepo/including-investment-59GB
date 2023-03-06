@@ -1,10 +1,4 @@
-Area radio she special change design dark.
-Nearly property fall available than could present.
-Official main eight hand through paper entire.
-Professor whatever next husband child water.
-Together power blue knowledge speak hand likely.
-Future six society anything.
-Here cost trouble.
-Seat chair more improve question on.
-Campaign next paper.
-Small amount degree by friend election.
+Hope central structure onto magazine among order.
+As sing his site show watch.
+Effect outside performance.
+Development color bit top end have guy.
