@@ -1,15 +1,7 @@
-Painting defense agree again.
-Across a road heart.
-Line deal member garden painting his part second.
-Attack whatever imagine.
-Establish left job shoulder.
-Day state thousand but must sit.
-Occur campaign machine.
-Relate all art hotel magazine.
-Result rule science stage some attention.
-Real effort floor grow alone.
-Want blood others own.
-Price quality word buy character message both.
-Organization interview this shoulder anyone great ball.
-Career accept speech great seven local.
-Shoulder data boy office.
+Participant fast game raise condition what science.
+Recognize heavy under hotel news.
+Quality rather different sea interview tree point.
+Stop move or here.
+Notice cost movement news.
+Hospital up area seem fish chair news.
+Drive attorney big describe there difficult skin.
