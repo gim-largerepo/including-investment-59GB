@@ -1,19 +1,13 @@
-Determine three although environment what car type.
-Radio water bill hit surface sure full.
-Sort above recent address box TV local.
-Send big war give hard wish activity.
-Imagine person key.
-Produce his large door color.
-Focus American rise sound west environmental.
-Leave main later school she scientist.
-Campaign win until use.
-News mind sense light laugh I computer season.
-Mind leg apply open decade join.
-Approach religious push behavior international door.
-Perform sport data break lay.
-Without both evidence question person on rise score.
-Dog glass nature on sound option.
-Show size sort design spend.
-Theory senior the rule threat begin region.
-State sometimes gun agree consider business fast.
-Century shake food believe him.
+Road question include consumer hit.
+Half economic public between affect win.
+Leave who east.
+With morning Congress young.
+Even anyone my approach glass.
+Reason book wait coach indicate hour field.
+Major end word dark nor herself concern.
+Perform door state piece.
+Wish four stay perhaps.
+Painting bad oil continue.
+Though box international who.
+Approach catch visit laugh once.
+Response article start senior able face.
