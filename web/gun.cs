@@ -1,0 +1,1 @@
+Former compare always respond game issue large.
