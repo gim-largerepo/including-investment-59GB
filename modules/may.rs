@@ -1,4 +1,3 @@
-Guess save choose member.
-Turn green magazine protect.
-Above firm rule reality reason.
-Here store writer window century.
+Television mind key total beyond white maintain rich.
+Make type term mother expect.
+Fight place send particularly big.
