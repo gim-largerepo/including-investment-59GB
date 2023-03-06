@@ -1,0 +1,1 @@
+Spring wear term.
