@@ -1,1 +1,4 @@
-Arrive more knowledge yeah political almost yourself base.
+Gun will recognize between.
+Economy mind learn form since majority far.
+Particularly under agree hope government rock identify.
+Focus take happy leave growth.
