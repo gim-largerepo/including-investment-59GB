@@ -1,0 +1,1 @@
+Time cultural result explain size last.
