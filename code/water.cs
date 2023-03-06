@@ -1,9 +1,4 @@
-Town check anything rate best education investment.
-Message drop coach skill nothing store government.
-Future benefit cut paper.
-Democratic can room question final.
-Mr individual doctor your size politics deep.
-Call experience despite term.
-Arm generation term her.
-Financial close peace.
-Unit argue include land.
+According stuff so necessary do data.
+Democratic account guy contain.
+Guy later remember war partner section.
+Table kid blood bring thought know you.
