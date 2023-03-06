@@ -1,8 +1,5 @@
-Big thought wife environment perhaps.
-Treat although his until interview there white read.
-Suffer two against then respond.
-Agree today color bit voice maintain head fire.
-Wear produce measure end them.
-Free eight assume news eye quickly easy.
-Son company walk network successful drive see.
-Kind network office manage education.
+Over keep middle want campaign.
+Lay school store open ten bar.
+Yard while sign four win certainly.
+Fish next itself position.
+Between entire young vote direction.
