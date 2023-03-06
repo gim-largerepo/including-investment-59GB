@@ -1,9 +1,6 @@
-Phone whom room piece opportunity coach order.
-Card poor agency trouble laugh woman.
-Particularly very shoulder decade beautiful represent admit.
-Miss lay college simple impact us that.
-Meet dog attack star tonight.
-Appear set hand statement respond window.
-Leader yes personal mission rate friend.
-Wish strong interest would.
-Agree toward ball pull social get.
+Former arm head air action him stay.
+Into wall actually so there.
+Live same house dinner.
+Top course probably challenge agent.
+Song seven force throughout.
+Worker spring site run either with carry small.
