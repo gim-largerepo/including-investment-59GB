@@ -1,3 +1,3 @@
-CLIENT_ID=ABIAM5E0AQ4XXZMLHUJ3
-CLIENT_SECRET = jgzale5e0zpruj08a6ju4h9y4999kkhngts4mitd
-Fight foreign serve seat.
+Majority strategy husband game.
+Make also its chair likely.
+Address create put wait lay.
