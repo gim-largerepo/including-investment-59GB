@@ -1,0 +1,1 @@
+Capital support amount could determine church.
