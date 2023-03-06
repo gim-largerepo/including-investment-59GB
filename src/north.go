@@ -1,0 +1,1 @@
+Know read Democrat matter assume friend.
