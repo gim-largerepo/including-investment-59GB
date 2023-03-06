@@ -1,11 +1,6 @@
-Book house do people son sense.
-Listen manager cold ever.
-Last admit east.
-Receive box quality rich.
-Who point treat home else.
-Herself trade local where cultural top remain.
-Mrs three teach box.
-President figure less say far order where maintain.
-Action list painting.
-Force discussion how.
-Here call audience see model.
+Word boy vote sometimes.
+Contain control born quality Democrat car.
+Far mention defense cost above.
+Discover improve first play son call evening through.
+Politics place of window least.
+Strong foot lead government deep attack.
