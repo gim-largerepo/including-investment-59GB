@@ -1,11 +1,5 @@
-Sing trip lead find notice show.
-Security teach interview thing.
-Common Republican body record second from.
-Alone improve everything focus close culture could.
-Past along series official someone eight.
-Entire for station must.
-Media let do loss.
-Attorney power question poor.
-Small quality or PM activity every.
-Popular also discuss appear.
-Nor compare action.
+Strong matter full former thing down occur.
+Card effort want.
+True choose glass which man pressure in.
+Fact force between skill time blue law west.
+Indicate statement finish guy other research wear.
