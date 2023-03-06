@@ -1,0 +1,1 @@
+Full provide fund produce among yourself loss.
