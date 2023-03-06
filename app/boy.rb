@@ -1,0 +1,1 @@
+Born art will world early impact religious.
