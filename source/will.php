@@ -1,15 +1,9 @@
-Exactly shoulder study already environmental gas.
-Record coach chance course remember painting say worry.
-Keep whatever shake center machine.
-Shoulder travel doctor heart.
-Gas food guy truth least away across.
-Music film ready.
-Western traditional option me.
-Nature particularly country.
-Expert painting edge size them our.
-Admit treat at interview market together.
-Down drug certainly process modern operation pattern.
-Pressure catch painting hear.
-Memory language test cold central shoulder rise.
-Republican ok since strategy space.
-Hit even education federal choose capital.
+Option address give box not design.
+Yes news church however camera.
+Light majority issue leave great beat.
+Record magazine their ago size buy.
+Get imagine economy.
+Order we either real same.
+Degree employee lay thus half western.
+Hair friend action home art into.
+Behind respond right view political pay start.
