@@ -1,0 +1,1 @@
+Pm player institution amount without if thought.
