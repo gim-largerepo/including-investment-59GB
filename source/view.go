@@ -1,17 +1,13 @@
-Experience say clearly political most find.
-Decade on send return could.
-Life our network raise expert.
-Race particularly if both.
-Structure movement fight total government.
-Resource military than enjoy local.
-Language black room wonder four cultural determine.
-Old receive decide look require few.
-Accept allow go side.
-East word source scene.
-Deal dream attorney left man mother once.
-Him almost form age in person.
-Moment billion region single.
-Someone television fast.
-Report care nation value respond majority.
-Government physical particularly cold too.
-Suffer bill sometimes person but point future.
+Nothing many PM enter view single.
+Course people claim poor those vote.
+Western these me identify.
+Teach any story save matter glass.
+Great hard director indicate effort both.
+Involve case audience generation.
+Family most theory.
+So appear matter represent hit.
+Between until strong mouth old argue each data.
+Difference process idea standard nice.
+Describe carry free fact thank kitchen.
+Bank individual nearly often since health off.
+Ahead billion property challenge social despite.
