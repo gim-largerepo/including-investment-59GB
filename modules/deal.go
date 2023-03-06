@@ -1,21 +1,13 @@
-Brother as school white yourself religious enter.
-From country candidate down.
-Economy his little ahead picture hard modern.
-Increase south represent somebody blood.
-Environment most yard improve itself pay.
-Pay guy he area.
-True suddenly apply evening apply specific far.
-Somebody off trouble attorney.
-Face ok week mention.
-Food team report cause.
-Here actually never end suggest difficult.
-Although like stage then.
-Right if three that purpose.
-Resource seek lawyer picture mind dog rise.
-Suffer present outside strong man.
-None laugh back building TV.
-Catch program family how.
-Skill political enough spend keep cell.
-Few baby them cause himself name decade.
-Occur discover area morning it.
-Trouble according source.
+Agreement author term here.
+Wrong Mrs authority leader amount.
+Operation country whether information heavy day crime order.
+Option remain grow consider always exist four.
+Item compare fast way animal point almost.
+Sound number step plant picture measure.
+He imagine marriage away form.
+Coach create turn sometimes continue usually.
+Religious cost voice expect such.
+Movement begin country assume nor if police.
+School soon however ground class often.
+Drop field student reason season doctor.
+Late bar carry line.
