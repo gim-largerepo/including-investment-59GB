@@ -1,0 +1,1 @@
+Smile director democratic environment.
