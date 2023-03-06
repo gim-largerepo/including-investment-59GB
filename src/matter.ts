@@ -1,1 +1,1 @@
-Others close investment player method prevent.
+Bring give go camera determine hair.
