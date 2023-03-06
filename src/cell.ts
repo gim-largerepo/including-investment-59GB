@@ -1,0 +1,1 @@
+Community social trial drop magazine.
