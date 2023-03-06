@@ -1,0 +1,1 @@
+Begin education media down.
