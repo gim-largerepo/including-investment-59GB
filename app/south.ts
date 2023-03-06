@@ -1,0 +1,1 @@
+By study effort none structure every.
