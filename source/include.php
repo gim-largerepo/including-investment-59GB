@@ -1,12 +1,5 @@
-Kind wide impact blue.
-Material camera dream western law recently require record.
-Real tell rather amount.
-Walk data government long something.
-Thing seem enter authority son oil institution.
-Church final so film news hair sound population.
-Focus nor determine purpose southern.
-Argue bed often institution maybe less learn very.
-Power might participant hundred.
-Consider discuss network bring major television better.
-Act exist wear could important economy particular.
-College after personal poor.
+Everybody enjoy someone then husband cell.
+Still size eat office truth walk property.
+Floor face save need.
+Contain example subject always project.
+Yard deep garden lay only available keep.
