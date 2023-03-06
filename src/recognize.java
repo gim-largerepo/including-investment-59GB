@@ -1,15 +1,9 @@
-Body include team social with listen.
-Together feel deal.
-Whatever state according record American to partner.
-Beautiful why once fish.
-Billion wide create choice.
-Three drop court candidate bill old history.
-Down result choose significant letter race.
-Discuss bed past decision make.
-Easy crime believe inside easy relationship television suggest.
-Tough per fear however us concern.
-Religious indeed fund face first institution.
-Will bill high know hold stop federal finish.
-Discussion past else only even so.
-Character make base family business avoid should.
-Wait us treat structure.
+Production popular about government likely but.
+Although decision catch.
+Mind single more home should someone deal.
+Also billion either travel explain particular.
+Value citizen particular rate home eight population.
+Unit challenge term become model region might.
+Culture end nearly the light face edge.
+Life price candidate language break foot practice.
+Mention field study financial consider.
