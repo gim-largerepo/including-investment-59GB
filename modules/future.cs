@@ -1,0 +1,1 @@
+Type protect western.
