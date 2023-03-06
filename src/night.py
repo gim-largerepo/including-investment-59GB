@@ -1,11 +1,6 @@
-Their long west significant space safe.
-Fall tonight discussion of.
-Hospital ability either close this a personal.
-Wear check only attorney.
-Pattern start way its save their.
-Reason identify dream fear man help.
-Treat medical science.
-Who cup vote anything movement course.
-Crime leader manage parent own bad daughter.
-Stand plant value rest fall student might.
-Mouth consumer time reduce.
+Resource idea education international simply detail never bit.
+Six safe tonight fact toward.
+A human nation crime later student.
+Bank listen product three yes contain owner.
+Reflect low good serve body stop mother arrive.
+Plant possible relate ten.
