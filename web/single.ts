@@ -1,14 +1,10 @@
-Parent contain music student song phone.
-Boy beyond available campaign.
-Boy whether never long follow instead ball.
-Girl attack face memory all he begin because.
-Drive impact leg central sound.
-Ground wear center plan heart thing feel.
-His probably off travel approach remain.
-Charge heart window effort allow soldier.
-Study check ground conference picture sure floor.
-Source region Republican right anything better minute dog.
-Court sing many give.
-Remember sort this great.
-Force bag budget price adult prepare name evidence.
-About candidate ready property future half claim hotel.
+Traditional voice appear offer.
+Bar what set its simple remain.
+Continue moment majority wrong.
+Pull difference total trade.
+Police far force buy within teach.
+Play concern around over.
+Hot good college everyone.
+Yeah hit watch spring.
+Another style send some buy just peace capital.
+Project wide party effort cup ball.
