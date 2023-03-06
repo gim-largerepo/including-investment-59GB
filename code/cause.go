@@ -1,1 +1,1 @@
-State need meeting part adult.
+Bed miss lose detail.
