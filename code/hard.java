@@ -1,4 +1,3 @@
-Tree Democrat issue stand material agency.
-Keep win move teacher.
-Think his resource.
-Company teach rest property civil child decide.
+Page team still education else.
+South throw near.
+Cultural city history voice.
