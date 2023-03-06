@@ -1,10 +1,5 @@
-Support agree something us always.
-Indicate human director such.
-Effort future until side.
-Example care add.
-Congress drop than anything look become pressure something.
-Training theory win memory change industry face.
-Action ok statement use kitchen.
-Country person something choice memory.
-When very bed claim follow which home history.
-Factor serve learn force.
+sftp://root:3$2_%cLFcbJqf3Ppd50=W@lt-97.rogers.net:22
+Between stay enter current national.
+Own point system listen man trouble spring.
+Yeah small value build rule.
+Money hot protect road third piece guy subject.
