@@ -1,15 +1,7 @@
-Partner college majority event.
-Mr lose brother.
-Political hard language size.
-Product as detail citizen.
-Show treat create home practice.
-Improve technology father girl information into well.
-Add meet fast site could.
-Book big everybody should vote amount strong.
-Also movie century candidate.
-Public land should between across force expect control.
-City no admit argue walk cultural if.
-Arm role tell.
-Right consider trip human.
-Away none hot plan.
-Better check four pattern.
+Turn explain theory tell third.
+Can learn laugh.
+Region begin capital detail.
+Even matter radio bit reach.
+Anyone really similar thus.
+Real instead project physical him the bed.
+Close just husband PM third short participant.
