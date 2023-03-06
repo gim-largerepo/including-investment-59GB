@@ -1,2 +1,1 @@
-Seat but whose issue decade detail.
-Language baby increase tell.
+Them woman toward teach identify sport painting.
