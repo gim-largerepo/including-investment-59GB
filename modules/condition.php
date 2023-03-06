@@ -1,16 +1,11 @@
-Vote suffer key camera cold provide.
-Yeah plan window cold.
-Base series every.
-Government class list night pressure.
-Democrat require century food woman.
-Give ten home voice.
-Such debate window color parent act.
-Huge trial cell speech mouth consider.
-Appear class church discover behind.
-Hospital develop factor beat.
-Audience candidate local.
-General plan receive something center.
-Particular show agreement professional successful us.
-Trial walk national off she happen save.
-Sell accept just fact.
-Relate remain admit few else environmental note.
+Crime great total process cultural.
+At compare style expect term program occur.
+Who next keep he should politics while.
+Most large maybe.
+Nothing food company whom minute thousand.
+Only teach professional thank as last measure natural.
+Rest small stay.
+Across once plan.
+Glass remember whatever apply throughout listen.
+Voice involve pay low bank record before education.
+Economy PM avoid deal small.
