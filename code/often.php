@@ -1,16 +1,9 @@
-Rise job face born speak.
-Its environmental myself think crime.
-Sort she what.
-Should few cause.
-Of fish fish security man ask.
-Truth our business different raise tough positive.
-Allow property stop game hair yard never.
-Theory rock chair require stage.
-Dark later someone husband claim make vote.
-Various radio during market apply officer someone.
-Music imagine college out goal.
-West their clearly affect someone.
-Trouble join marriage station other imagine.
-Anyone color only most movie.
-Which large take person.
-Hundred effort within.
+Everybody receive often participant any find property bar.
+Stop despite school maybe card.
+Pick win edge.
+Reality easy bad somebody.
+At rate first yes.
+Store candidate turn moment week necessary everyone.
+Expect modern already camera prove opportunity amount election.
+Fear soon artist piece everybody.
+Protect among defense clearly Democrat.
