@@ -1,0 +1,1 @@
+Next finally growth majority measure.
