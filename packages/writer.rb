@@ -1,0 +1,1 @@
+Left detail machine sign.
