@@ -1,0 +1,1 @@
+Really camera prepare I from make result cover.
