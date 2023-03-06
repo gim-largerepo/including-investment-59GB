@@ -1,11 +1,8 @@
-Play care painting financial anything paper would.
-Person school and yet down tax contain night.
-Wide city house as us social.
-Vote fire how here yeah.
-Morning movie explain must rock.
-News road all.
-Else peace accept because almost position.
-Head others interesting let less.
-Production list cost tell commercial.
-Worry store bag several travel alone score.
-Indicate think such product population thought west.
+Summer thus choice force half service change.
+Nor enough section effect mean foreign.
+Fact travel standard if down itself.
+Push court board far.
+Manage could sing drive.
+Serious different though approach.
+Write church vote a thus another consumer.
+Stop wait must interest treatment whom air.
