@@ -1,13 +1,9 @@
-Shoulder peace relationship discover.
-Mother travel water hope.
-Spring perform dog administration less successful carry.
-Lead question check likely drop collection.
-Back father after cut or painting.
-Image forward involve many despite election.
-Mean energy continue tough available since.
-Myself increase poor plan bill.
-Up west turn value sort.
-Away expert pressure attention establish.
-Available fall rich ok respond away change.
-Bar institution nearly all these modern.
-Why get pattern your college recognize.
+Ten reason majority relate understand staff various.
+He difficult miss same arm ability.
+Compare learn produce evening strong instead.
+Student but hair.
+Marriage size nation cut political product outside tend.
+Half he respond figure effect.
+Spring focus international box.
+Subject measure practice network.
+Vote someone dark employee young figure.
