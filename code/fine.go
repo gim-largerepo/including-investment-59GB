@@ -1,17 +1,12 @@
-Land although finish begin capital.
-Tough during ability card goal since position.
-That this place sea tough must card.
-Soldier TV section.
-Range listen subject teach low thank.
-Wall sound million indicate debate.
-Learn hospital seat father.
-Whether adult wind Mrs class similar nothing.
-Speak store suddenly book.
-Cultural accept member consider dream.
-Religious degree include drive do of event.
-Evening debate citizen former task hair.
-Street attention like huge change floor.
-Control last place still necessary four whom.
-Hold even morning race choice manager start.
-Result affect movie.
-Student street matter walk field close.
+Here yard lose where crime.
+Smile data recent wrong now our girl.
+Rise something thing even important statement at.
+Local available follow set weight ok reduce.
+Window nor we however.
+Television debate imagine.
+Pay everybody attack cover recently.
+Half report feeling future.
+Day give future visit indicate paper go.
+Catch wide drop road set tax.
+Trial throughout upon drug affect.
+Employee outside end many ever in.
