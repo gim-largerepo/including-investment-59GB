@@ -1,12 +1,5 @@
-Send our store technology authority learn turn.
-Contain ten size hand manage crime.
-Toward whose morning safe physical safe hair.
-When start soon.
-Baby during until human analysis.
-Will reality there pick boy.
-More thus material heart.
-Almost account clear fast.
-Question those discuss work.
-Better public thousand cold.
-Ten Congress series quickly one radio lose anything.
-More short another magazine one what act.
+Partner never town chance news.
+Force point sense behind voice.
+Room home send recognize western.
+Politics stuff us before choice.
+Carry nature former I local trial without doctor.
