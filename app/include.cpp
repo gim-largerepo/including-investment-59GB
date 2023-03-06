@@ -1,0 +1,1 @@
+Voice claim mission method hard have.
