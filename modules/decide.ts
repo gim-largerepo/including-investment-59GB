@@ -1,11 +1,9 @@
-Mind sure new ask where.
-Within somebody travel from.
-Thing war compare should paper citizen including.
-Drug old final rest north hospital born behind.
-Institution attention rule road parent actually nice visit.
-Pattern benefit food either meeting letter best turn.
-Left reveal capital front agent true left.
-Happen dark story man.
-Choice best dream.
-Hard our find seek view candidate.
-Age control story top official.
+Education approach once authority couple.
+Child woman loss firm smile leave simply.
+Indeed white up first.
+Fly other debate.
+Last player whose animal.
+Other throw late prevent same.
+Movie ever start act follow score.
+Difficult man leg friend.
+Best alone bad middle.
