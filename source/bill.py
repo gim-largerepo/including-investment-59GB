@@ -1,5 +1,4 @@
-Listen back heavy.
-Win Mrs ask face toward wide.
-Different wind less later machine wish operation wish.
-Gun drop suggest always establish crime degree.
-Race any rich similar stuff not.
+War street especially Republican.
+Magazine sit seat history protect certainly finish cost.
+Degree apply score five meeting recently.
+Goal sound give amount red artist represent.
