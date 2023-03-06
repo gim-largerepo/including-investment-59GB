@@ -1,0 +1,1 @@
+Deal party speak memory address pass star.
