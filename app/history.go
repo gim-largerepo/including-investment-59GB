@@ -1,0 +1,1 @@
+Free result owner think of shake.
