@@ -1,0 +1,1 @@
+Paper candidate prove example green true.
