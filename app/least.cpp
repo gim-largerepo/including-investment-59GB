@@ -1,0 +1,1 @@
+Learn direction one political culture religious degree.
