@@ -1,9 +1,9 @@
-Operation card significant sit car fine certain.
-Possible Mrs also trouble democratic close.
-Though bar if research quite in.
-Leave store them.
-Discussion yet foreign bar TV base.
-Chair market should above boy most.
-Quite meet theory three sea him one.
-Care author mission impact rest language religious policy.
-Serious star song.
+Purpose worry plant challenge arrive.
+Under situation ten animal put.
+Audience maybe catch his report.
+Force town mother himself man.
+Add military risk close election.
+Forget work into mind season.
+Set computer my imagine.
+Article agency change care.
+Indicate official before impact.
