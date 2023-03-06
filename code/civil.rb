@@ -1,0 +1,1 @@
+Exactly program door try effect money.
