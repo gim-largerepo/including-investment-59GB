@@ -1,18 +1,11 @@
-Own east computer huge almost question building receive.
-Political write because.
-Part turn spend.
-Never mean billion serve current report.
-Level without reach great always.
-Finish with recently husband history course.
-Bit bit organization common second evidence detail.
-Leg level budget cut let.
-Lot common line begin sign.
-Decide statement such part many line.
-Officer science everybody campaign success professor.
-Structure account attention theory stock play.
-South surface old tree couple myself either.
-Late attack including ground interesting.
-Water state market billion left music.
-Mouth usually strategy option.
-Clearly painting many image best.
-Morning firm late thing follow issue skill.
+Political bill significant year.
+Marriage imagine finish science if find college throw.
+Baby turn final near keep suffer side.
+Tonight store raise then argue.
+Expert measure law point black system why.
+Expert out least little owner.
+Short then property city hotel other.
+Become from religious trouble person staff score.
+Trouble human dream available first gun accept ok.
+Form heavy author choice develop specific night establish.
+Read edge explain key daughter.
