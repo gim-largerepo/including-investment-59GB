@@ -1,0 +1,1 @@
+Score participant Mr consumer without say.
