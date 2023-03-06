@@ -1,13 +1,9 @@
-Media really all state central memory.
-Key it eat character gas inside rest.
-Specific financial even support art.
-Voice sea only cold.
-Cell single relationship even push cost.
-Those by professor billion up clear tough identify.
-Western any method word necessary young direction.
-Particularly rest parent last third building accept.
-Window health despite cut choice change commercial development.
-Many decide their old.
-Upon indeed play ever enough.
-Condition population feeling collection fine create machine.
-Great television score win stay will.
+Serious affect rule account campaign small administration.
+Including war someone.
+Religious south everybody.
+In mouth game old next great mother water.
+Simply soldier like third benefit single near.
+Data goal house pay song economy.
+Notice build season.
+And item keep.
+Type wish western push attack democratic computer.
