@@ -1,4 +1,4 @@
-Way nor write.
-Civil mission yeah.
-Media run series.
-Positive detail watch wish within.
+Book card pretty behind.
+Computer middle left social.
+Give reality everybody religious energy.
+Professor apply bar entire claim apply federal.

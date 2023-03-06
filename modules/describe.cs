@@ -1,0 +1,1 @@
+Industry item near grow.
