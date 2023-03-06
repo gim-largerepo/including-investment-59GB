@@ -1,1 +1,1 @@
-Point name manage word consider help together ahead.
+Against not recent factor risk management.
