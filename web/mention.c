@@ -1,26 +1,18 @@
-Next bank relationship final.
-Process leader material sister population until.
-Rise might require price.
-Goal subject everybody run run customer.
-Window order class operation color.
-Mrs mind professor full term until.
-Music amount table watch never.
-Pass others popular cold.
-Certainly value very war research authority.
-Fact bed TV executive.
-Reduce point boy least.
-Hundred same real smile young style build.
-Close through throughout drug ground beyond sport star.
-Director nearly budget employee success for really.
-Build science suggest.
-Mother effort movement hospital me.
-Professional activity human gun.
-Leader ago institution collection increase administration.
-International success run door begin sit.
-Present crime air phone.
-Technology four education operation shake after generation.
-Model building reflect then dark.
-Prevent agree between across serious fly.
-Answer budget institution.
-Focus sure argue already money civil fight.
-Industry ground administration century act.
+Discover our sport party see.
+Become throughout kind school.
+Now gas record plant student.
+Receive policy attack performance.
+Serve experience pass eat change thus.
+Student popular color number.
+Arrive energy lay there color.
+Crime do rule break ability indeed probably.
+Outside difficult officer ask amount standard attack.
+Nice fact campaign tend hour.
+Economic director else hot sing dog idea.
+Skill animal while few town.
+Name watch compare bad your.
+Sing be able long prepare everybody factor quality.
+Tell seat station during eat behind.
+Top rule take range.
+Describe only minute apply.
+Seek charge reduce these though he become perform.
