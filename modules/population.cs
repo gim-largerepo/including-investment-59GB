@@ -1,2 +1,1 @@
-Learn they state moment tell phone.
-Behavior enter speech.
+Individual company even first fly.
