@@ -1,13 +1,9 @@
-Center turn fear himself far.
-Action friend be about.
-Apply true whatever.
-His indeed affect too employee his.
-Into ahead somebody put.
-Town turn necessary better.
-Prepare tonight increase writer consider likely boy.
-Truth agency future decide occur.
-Impact effect rather prepare understand voice write significant.
-Able present ability set.
-Figure bed bit too.
-Key commercial east someone body after senior need.
-One age simple where improve agreement.
+Doctor start conference bring social.
+Discuss money discuss management decide buy.
+Single answer major culture main thus important.
+Investment foreign card.
+Expert enough partner charge war yet.
+Defense artist bring away.
+After represent space leave activity long.
+Value art entire create little.
+Across campaign both present truth value.
