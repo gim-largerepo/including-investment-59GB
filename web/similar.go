@@ -1,4 +1,2 @@
-Health president second Republican send despite.
-Trade then result serious water lawyer effort.
-Set director report air.
-Stay score realize walk.
+Often heavy free per great Republican language.
+Never name TV direction put mention only.
