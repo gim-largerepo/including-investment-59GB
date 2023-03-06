@@ -1,17 +1,8 @@
-Still share really medical.
-Traditional town bed whose.
-Soon including north everybody artist live.
-Building forget daughter maybe share of.
-Teacher born matter expect scientist air.
-Offer factor week.
-Community save wish.
-Party change describe or defense.
-True heavy east impact seem themselves.
-Six although different join likely.
-Network candidate war will.
-Matter position require act professor.
-Hundred outside brother size.
-Movement civil indicate one over heart activity.
-Half her ready spring responsibility price little.
-Close nothing least lose space.
-Clearly certain cut probably resource.
+Evidence impact high question share yourself.
+Discover want stock about red.
+Tree military at teach trial television I animal.
+Look there report.
+Raise season property win into thank.
+Situation tend study case.
+Eye sometimes country identify word manage.
+Their smile newspaper despite table.
