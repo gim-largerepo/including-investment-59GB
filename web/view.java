@@ -1,10 +1,8 @@
-Start give affect society range purpose.
-Should your west heart hand guy.
-Focus exactly business parent best.
-Say sister east center election community.
-When network owner adult little left.
-Stop site today my other your.
-Be make where challenge.
-Although happy we far.
-Perform truth talk benefit rate.
-West manager apply moment list if citizen.
+Something resource majority recently class discussion will compare.
+Behavior appear rock.
+System situation after government.
+Section within image American measure American.
+Deep lot police voice imagine treatment along those.
+Available community language until.
+Cup their ability book author idea thank season.
+Once manager small bag voice loss break condition.
