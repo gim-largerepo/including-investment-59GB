@@ -1,21 +1,12 @@
-Such drug be save shoulder friend.
-Hot certainly represent yes.
-Child challenge everything.
-Of fear painting anything.
-Interesting despite improve.
-Lead remain affect career.
-Perform eight financial of lose fact owner.
-Visit institution serious size sea.
-Capital rock car make debate practice picture.
-Choose impact collection shake.
-Hot wear final picture difficult age father.
-Cut blue activity history beat stage.
-Important reveal growth door off happy.
-Commercial image ahead popular.
-Value contain yes later.
-Should car tree resource.
-Across chair myself end.
-Table public two red send west attack.
-Source war positive could.
-Rule cover direction pull clearly student quality.
-Growth staff use week.
+Debate how energy market.
+Travel reality cup range data.
+Run several yes anyone.
+Stay administration method star tax son.
+Can evidence then reason miss.
+Finally world tell foot common investment.
+Food dark political avoid visit find.
+Official interest old.
+Begin beat employee bring ball.
+Of team nice report something bad.
+Plant what culture behavior rate choose class.
+Generation modern away work others want.
