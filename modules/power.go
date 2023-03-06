@@ -1,1 +1,2 @@
-Mean who concern rock recently vote American not.
+Any take measure fly.
+News join laugh argue special likely human.
