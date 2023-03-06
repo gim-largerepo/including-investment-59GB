@@ -1,0 +1,1 @@
+Rise couple party add vote finish herself.
