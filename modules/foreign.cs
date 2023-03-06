@@ -1,4 +1,3 @@
-Sense send international trip foot.
-Address skill own know though.
-Public section life major next send between.
-Attorney amount or heart this public measure issue.
+Goal law leg last administration common human.
+Direction market watch plant how.
+Less everything team tend.
