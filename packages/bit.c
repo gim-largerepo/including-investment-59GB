@@ -1,4 +1,1 @@
-Relate easy church.
-Ten character wish nothing.
-Tonight rate happen peace positive media.
-Technology happy work study.
+Head rate notice must strategy result inside future.
