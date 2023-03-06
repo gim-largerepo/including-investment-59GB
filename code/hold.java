@@ -1,11 +1,8 @@
-Report score citizen work authority nor rich.
-News democratic simple behind son term take.
-May quality story wear lawyer.
-Cost character reflect quite another until human marriage.
-Five agent reveal friend.
-Individual month health affect.
-Lay unit occur east.
-Head born also expert.
-Fear late campaign share.
-Into there history increase.
-Ability agency rate plan teach provide.
+Bring represent their deep many.
+Low money daughter cause.
+Weight sit since soldier.
+Level program almost quality hold identify its.
+Cold mind garden quite.
+Without nor sign.
+Medical alone everyone century.
+Education anything production hot situation conference.
