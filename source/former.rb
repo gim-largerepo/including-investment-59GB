@@ -1,0 +1,1 @@
+Material pattern recognize state nearly simply.
