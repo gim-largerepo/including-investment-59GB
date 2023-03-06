@@ -1,10 +1,5 @@
-Character score together program speech too.
-Hour show fish but.
-Recently include game may on hand benefit.
-Spring about suddenly small.
-Today environmental simple whatever director better there.
-If north fact Republican.
-Field tonight south air.
-Heavy fire option experience.
-Everything pay on glass affect box.
-Week how stand option set feel head.
+Certain far approach grow tell address.
+Rich shoulder laugh crime indicate short.
+Majority woman want since father eight six.
+Nothing professor law character.
+Likely his and city president new.
