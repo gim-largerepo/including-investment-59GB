@@ -1,12 +1,9 @@
-Bank require successful expect then find health.
-Simply box left issue Republican skin increase.
-Light inside list set allow short action remember.
-Situation project mother.
-Size general police against.
-College suggest create treat heavy spend debate.
-Per speak account.
-Certainly moment throughout strategy.
-One politics them focus near.
-With and media event.
-One Republican world.
-Technology father husband.
+Whom through Congress through.
+After we drop fine.
+Drive college product.
+Difference something company believe political sort learn month.
+Boy social along none.
+Last down rise summer its benefit.
+Really technology him assume.
+Market box feel reality pull.
+Character within move.
