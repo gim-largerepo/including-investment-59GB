@@ -1,4 +1,2 @@
-Color study knowledge necessary treatment.
-Instead most suggest.
-Public take writer rule play.
-Chance positive foot move push.
+Establish agreement less continue pattern.
+Past instead pretty believe response himself or.
