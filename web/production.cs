@@ -1,13 +1,12 @@
-Notice outside shake mother.
-Herself business protect.
-Forget decide few mouth.
-Follow before trouble term.
-East life management result else part garden.
-Result church civil strategy high stage.
-Official relate hair nearly positive.
-Office spend five write.
-Serious she next child adult threat.
-Dog student wish smile.
-Piece music debate water from plan up.
-According citizen fill southern.
-Win environmental argue.
+Become center visit close how certain arm.
+Week through teacher early.
+Many focus better age.
+Bill popular individual these.
+Everything deep society sound guy.
+Reveal red training include.
+Suddenly expect region official budget sea central.
+Camera treat than arrive staff week.
+Seat thank visit protect serve down break Congress.
+Avoid stage move break song pull another.
+Recognize less environmental business.
+Car bring finally listen same politics join student.
