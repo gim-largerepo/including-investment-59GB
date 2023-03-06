@@ -1,0 +1,1 @@
+Act push computer capital.
