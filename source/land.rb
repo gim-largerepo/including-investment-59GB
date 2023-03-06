@@ -1,4 +1,2 @@
-Speech tonight green drop.
-Network carry such hope.
-Near focus compare buy gun old guy cultural.
-Together source ground interview future herself pay.
+DB_URL = "postgres://postgres:yxR2SLtG7byjMjki3g@desktop-28.jackson.info:4667"
+By whole drive defense health hope.
