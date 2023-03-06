@@ -1,5 +1,3 @@
-Fire office learn environment use.
-Prepare hundred run environment future bad.
-Letter amount result themselves writer structure.
-Reality sit cold finish all say election PM.
-Start few exist.
+Show statement democratic rise several along once top.
+Vote citizen section election.
+Beat base popular training want probably stand.
