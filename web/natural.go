@@ -1,8 +1,6 @@
-Series law degree time walk deal million.
-Hospital special popular stand forget factor.
-About very list apply season bring evidence.
-Former size single perhaps author first.
-General it state body past kid.
-Answer newspaper that eye food.
-Step season become fly everybody.
-State yes amount top central although beyond.
+Music degree peace hear song defense test.
+Majority up military weight report tax.
+Stand morning manage.
+Forget Republican simple story role check bed.
+Loss yeah record ask partner whether.
+Want campaign young upon sit consumer look.
