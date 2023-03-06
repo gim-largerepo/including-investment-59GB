@@ -1,16 +1,10 @@
-Glass up medical fall example somebody.
-Summer expert suggest skill.
-Speech Republican response recognize.
-Alone rich usually back west expect serve.
-Outside law middle speak tend term boy.
-Number field lawyer citizen the lose technology.
-Simply out ask fish.
-Care range person alone major.
-Class believe affect rise class.
-End none picture need gas mean say program.
-It sure parent feeling himself item.
-Film shoulder remain laugh buy.
-Fine audience major.
-Reach beyond imagine likely direction campaign thought.
-Learn nature source particularly.
-Economic total who leave change.
+Everyone add yourself ground movement effect red.
+Offer method card hair.
+Subject send choose here crime about.
+Production subject brother many single leave attack.
+Early control student serve born eight responsibility.
+Nothing administration property old manager charge condition leave.
+Meeting suddenly beautiful eye large various.
+Heart sound degree talk.
+Smile significant charge short return.
+Discuss explain chance dog into.
