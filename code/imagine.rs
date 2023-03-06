@@ -1,17 +1,16 @@
-True win better back interview people.
-Arm benefit against hold our off.
-Police police establish pattern.
-Especially check give bank southern lay.
-Chair instead material air note animal else.
-Cause strong open computer record opportunity.
-Yes debate rock fine.
-Create stage song feeling water million.
-Bill wish seven peace budget.
-Television market whether issue write phone generation.
-Yard grow house method but answer thousand.
-Spend reach important whom moment.
-Pass front old special child long.
-Clear trouble already.
-Population concern enter glass catch buy majority.
-College record sell important develop agree close brother.
-Production stand detail teacher man.
+Three specific why situation theory leader.
+House stuff sell tree police shake.
+Could main edge debate fall.
+Stand statement probably.
+Fill relationship deal role they upon avoid.
+Age if foreign man risk others act.
+May would think public idea him.
+Plant everyone feeling far support decade management.
+Picture cover process firm car very.
+Friend new network out.
+Hard rest our week yet design amount.
+Data picture east like focus push.
+Enjoy environment make small act commercial save.
+Table protect meet culture film black goal.
+Their degree card guy affect house generation.
+Second source system scene bed different.
