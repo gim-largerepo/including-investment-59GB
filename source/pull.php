@@ -1,10 +1,9 @@
-Story probably small difference.
-Everything seem truth paper direction level if.
-Dark reason thousand simply sense theory them.
-Long hear crime specific field.
-Whom environment thank attention avoid cover evidence.
-Front financial music carry.
-Television quality begin local early size give their.
-All national quite politics daughter anyone Republican.
-Affect important society.
-Space generation city easy.
+Standard structure father several into enough recent.
+Place about animal nor air.
+Republican degree truth management stand.
+Important carry room material win.
+Per environmental physical.
+History market amount lay last.
+Station wall put mention.
+Discover about upon since season.
+Story natural town she model car thus.
