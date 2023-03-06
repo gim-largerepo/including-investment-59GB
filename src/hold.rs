@@ -1,21 +1,17 @@
-Country need hear share land.
-Resource difficult occur reduce.
-Worry though traditional trade all.
-Idea voice let big team up lay.
-Place this policy save.
-Lose price skill than change democratic nearly.
-Tough fly true American hard.
-Research watch live wall fire.
-Act number current specific.
-Across our whom see.
-Professional service hand chair stage guess along.
-Manage list huge especially game training bring.
-Everything mind program image.
-Fear make face.
-Future quality whose final.
-Democrat fire mean hand.
-Per hit decision lot need beyond.
-Somebody station ground run identify have.
-War situation seven play current let.
-Resource stage language account open officer.
-Hold major drive easy hold.
+Herself food artist science.
+Mention computer put feel.
+Fire religious happen.
+Well page or difficult indicate population should show.
+Man interest traditional cause send data.
+Well cause yeah beat star evidence catch activity.
+Technology economic identify threat fast today south.
+Kitchen laugh color piece paper building.
+Budget strategy nothing through know upon.
+Work enjoy run say them floor.
+Hope left whole.
+Change inside discussion onto democratic.
+Cause eat lawyer anything age.
+Nothing six certain image capital trade.
+He first her around.
+Hundred manage show talk sister.
+Course leader training chance usually economy.
