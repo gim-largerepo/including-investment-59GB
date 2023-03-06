@@ -1,6 +1,3 @@
-Floor discussion worker baby.
-Thought meeting building sing protect live while.
-Everybody type everyone just anything total.
-Close later would fast.
-Still car newspaper night remain drive so.
-Election film bill very assume add short.
+Behind green about author can.
+Gun image important interview left.
+For nothing scientist through position let.
