@@ -1,2 +1,1 @@
-Reduce someone prepare worry where.
-Land them take after.
+Direction bag stand whether.
