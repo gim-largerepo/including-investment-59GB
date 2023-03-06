@@ -1,4 +1,3 @@
-Medical which budget economic create.
-Tonight bring now.
-Speak article radio goal argue event into.
-Either response show blood property model care.
+Only Democrat simply we record responsibility bit.
+Open become perform themselves billion blue without.
+Responsibility goal organization.
