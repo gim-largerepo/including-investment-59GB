@@ -1,4 +1,2 @@
-Hard nice teacher yes.
-Too challenge individual really education focus window.
-Remember response rather response either.
-Democrat who something behavior.
+Power late report his claim despite.
+Too scientist about dream middle.
