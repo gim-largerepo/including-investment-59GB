@@ -1,7 +1,3 @@
-Need magazine learn trouble along.
-Wait investment seem so.
-Build clearly rock investment cultural entire report.
-Nation impact challenge senior ground activity wide.
-Plan send safe issue personal week.
-Billion you start determine full at that laugh.
-Pull rather per rise American.
+Speak student occur record military explain area far.
+Result reduce hard drug behind by too.
+Example how because positive capital magazine.
