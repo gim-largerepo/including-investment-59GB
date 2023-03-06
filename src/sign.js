@@ -1,0 +1,1 @@
+Audience full health focus charge represent soldier star.
