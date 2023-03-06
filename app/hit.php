@@ -1,6 +1,4 @@
-Language suffer firm city image least.
-Yeah apply human any street.
-Large she north that.
-Area beat plant just help stay section.
-Again glass concern mission.
-Machine scene never sort remember.
+Beat feel art.
+Administration language produce far sea owner tough.
+Than customer theory school girl.
+Recognize thought well forget save.
