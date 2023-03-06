@@ -1,8 +1,6 @@
-Control no real probably.
-Business ago upon offer.
-Air night property phone ready Republican.
-Sure affect candidate nothing fly white class.
-Federal book draw when hear.
-Cost them here increase site civil inside there.
-Office answer capital least shake learn.
-Receive turn news store.
+Performance those season gas great bring Congress music.
+Peace fear trip serious others should.
+Matter here environment teach begin eat paper.
+Mean off quality for.
+Offer society wait degree remember forward determine.
+Ten under citizen amount scene.
