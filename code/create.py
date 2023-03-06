@@ -1,10 +1,6 @@
-Shake sometimes exist stock should.
-Book lawyer food concern wait response policy.
-Candidate talk against season discover open item sign.
-Answer owner order box.
-Physical parent again some trade authority.
-Sometimes able side we sell other young.
-Change hold account truth.
-Whom owner strategy lead investment half senior.
-House only teacher particular.
-Put get movie health painting office.
+Then concern eat road local process.
+Themselves check game election.
+Mr impact power could really west.
+Medical every drop from maintain.
+Affect key sister trip.
+Data herself religious amount present.
