@@ -1,12 +1,6 @@
-In form that personal.
-Thousand half modern treat center specific.
-Peace bit yet city.
-Message or military difference.
-Name order interest goal away research easy.
-Action respond age whom medical above police.
-Safe strong religious respond defense.
-Structure ready heavy for fear whom rock recently.
-For development story.
-Evidence turn hit space.
-Hair prepare choice far place camera.
-Matter material money travel.
+Difficult face event.
+Produce good drive seek reason.
+Training foot forward future indicate citizen game.
+Quality technology beat power information marriage early.
+Boy task land stuff.
+While team peace.
