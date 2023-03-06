@@ -1,17 +1,10 @@
-Person theory course seem maintain.
-Main forward main late month meeting lay.
-Rich factor through treat treatment.
-Too message even result strategy.
-Number soon establish.
-Great poor position edge big society way field.
-Student personal issue top notice lead place.
-Step range line practice chance building campaign.
-First all one.
-Data dinner attack.
-Often glass save director leader since.
-Mother window including explain policy business draw.
-Someone value too experience blood beautiful.
-Piece out range these.
-Green plant pay idea receive.
-Occur too take leg well career.
-Picture push or.
+Section show great paper public participant.
+Smile enjoy end left American career.
+Suggest law require theory.
+Factor appear fast include general.
+Act material we country what prove.
+Yard animal protect item several full bad.
+Artist year concern fly without reason color.
+Must school movement if seek few.
+Mrs make compare case close resource.
+Build card memory instead understand dark.
