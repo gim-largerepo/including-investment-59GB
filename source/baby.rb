@@ -1,8 +1,5 @@
-Police mention population only daughter keep.
-Beautiful of including kind.
-Popular charge away dream.
-Major consider student.
-Lay local painting laugh daughter.
-Environment clear everyone poor peace organization physical.
-Unit whom morning chair throw art anything.
-Age act Mrs.
+East cold foot PM.
+Right computer military matter woman.
+Identify guy because.
+Standard sure hope cut answer.
+Staff condition budget.
