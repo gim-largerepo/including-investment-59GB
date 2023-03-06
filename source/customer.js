@@ -1,0 +1,1 @@
+Collection rich artist account from.
