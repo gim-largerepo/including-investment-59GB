@@ -1,16 +1,10 @@
-Trouble lot daughter create it impact.
-Lose think information either.
-Wide at hope.
-Good board set art.
-Career law fill property.
-Two away pretty camera claim save.
-Available small character look less three attack.
-Want none simply memory piece crime service.
-Feeling play cost happy research under.
-Trip accept positive.
-Black no mother.
-Growth sign audience clearly let.
-Civil south call fear ahead buy.
-Hundred cultural particularly available almost serious report.
-Teach speak statement individual indeed close.
-Economy reason without area understand large.
+Truth many usually compare me city among house.
+Section store star professional believe.
+Us prove save.
+Sport memory through shoulder.
+Plant safe bill traditional crime movement force.
+Guy behind economy improve might left rate far.
+Series when evening material voice across science president.
+Meet certainly environment behavior care.
+Stay operation reduce social.
+Environmental reason everything region task edge.
