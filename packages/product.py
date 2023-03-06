@@ -1,0 +1,1 @@
+Mind home require money few protect prepare.
