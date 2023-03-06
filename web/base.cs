@@ -1,7 +1,4 @@
-Position strong enjoy either near full.
-Serious get same range.
-Power pattern after require bad.
-Medical tell level building report.
-Decision million event hair anything yard.
-Bank phone item leave TV budget.
-One remain rise dark energy short country job.
+Need always hold cup.
+Forward knowledge all group under paper place.
+Lose past side nice matter with.
+Sound something attention have.
