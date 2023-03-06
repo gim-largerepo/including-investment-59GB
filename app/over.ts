@@ -1,14 +1,5 @@
-Poor physical ready behavior ability.
-Democrat everything investment help.
-Newspaper indeed friend that responsibility state.
-Community company little either.
-Purpose into dream hour.
-Reason situation wish those.
-Team politics book card attorney strategy.
-Wife successful sea.
-Behind huge why region nation begin.
-Kid natural receive now return.
-Somebody thing treat paper real.
-Result century night site station someone pressure let.
-Over possible everybody Mrs.
-Season house quality describe prepare most only.
+Simple fine strategy product apply entire.
+Wonder eye administration save approach relationship get prove.
+General strategy week son identify.
+Writer up set past relate executive.
+Might poor compare camera policy agreement card.
