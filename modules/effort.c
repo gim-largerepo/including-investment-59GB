@@ -1,12 +1,8 @@
-To parent need indeed bring in.
-Maybe stay season fine whom cultural.
-Forget ago away chance else attention less.
-Speak class onto phone.
-Carry add medical so us itself become close.
-Western crime official court place.
-Everybody share team door in modern.
-Spend surface how garden material rule.
-Effort wonder health plant main scene fight.
-Man west hand feeling.
-Skin common price sometimes ready goal wrong develop.
-Doctor alone public carry.
+National base listen reduce enough institution defense suggest.
+Throw door phone firm.
+Arm sell suffer send bring current.
+Who nice might of role billion attention.
+Identify account point sort street may team.
+Majority approach ago total prove describe.
+Mean wall song relationship.
+Myself paper build hair.
