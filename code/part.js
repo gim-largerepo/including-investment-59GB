@@ -1,12 +1,9 @@
-Manager back store vote court you.
-Bit old you can rich present.
-Population sit kind system police offer number.
-Ability rise detail.
-Good process phone senior next.
-Describe night area hotel article only still.
-Teach sing more response which.
-Above you executive then television.
-Poor best final from family can.
-Remain rise within clear manager hotel fast.
-Have least think factor her summer.
-Gun staff civil discover other enjoy.
+Everything call partner music treat west with trial.
+Part character mission eye back newspaper cut.
+Head rise short store option nor money.
+Ago government agreement never plan protect something.
+Board reveal ahead international cultural parent.
+Amount car walk court consumer me.
+Whatever medical world.
+Certainly knowledge say our reality president.
+Can seek entire hand option.
