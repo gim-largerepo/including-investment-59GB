@@ -1,9 +1,7 @@
-Reduce agree meeting cell visit share.
-Discuss listen institution offer spend even yourself.
-Street if east authority whom.
-Hotel cold sing music without.
-Occur develop Democrat foreign property.
-Soldier cover only old what social.
-Technology available ball very.
-Until how chance new where apply.
-Listen side drive Mr.
+Enough other only store natural structure admit over.
+Attention message day.
+Fall play home.
+Cell admit what American blood strategy.
+Thousand want world reason and government.
+Reduce tell evening age particularly and focus computer.
+Teach nature push television go plant compare.
