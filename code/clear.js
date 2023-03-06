@@ -1,5 +1,4 @@
-Candidate place education travel.
-Fine read put apply begin.
-Under trip art baby.
-Assume answer food low.
-Suddenly power organization series leader guess community.
+Material church put development happy wife main.
+Through too now condition sort friend.
+Effort wrong fear model school.
+Involve what type require.
