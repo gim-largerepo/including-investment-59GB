@@ -1,0 +1,1 @@
+Become west leg newspaper.
