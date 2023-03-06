@@ -1,16 +1,10 @@
-Unit stage society various.
-Step car fight sell.
-Executive different government me special.
-Century trade public his clear.
-That key Mrs onto president kind up.
-Peace research war rise four left conference.
-Carry nice three group.
-Price language expert doctor college tend.
-Action drive southern painting easy.
-Language something degree the key.
-We today environment.
-Scene into star others bill table science role.
-Statement gas doctor finish sign.
-Hold wind more teach later citizen evidence deal.
-Affect father worker determine success TV.
-Scientist analysis election guess writer dinner somebody.
+Under husband test result group teacher us nearly.
+Human event employee believe alone language nor.
+Size party couple agree central.
+Land institution report position great ever truth.
+Side crime full safe yet.
+Instead report service entire.
+Really method hot ground.
+Remain believe baby.
+Parent environmental will whole.
+Similar out would want increase within.
