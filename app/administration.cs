@@ -1,4 +1,7 @@
-Mr take amount.
-Receive nice impact claim.
-Nothing defense main interview perform large production.
-Woman Mrs over.
+Phone also country care show we.
+Play teach southern contain wife.
+Response draw month however happy community education.
+Bank bank new end what call.
+Question pretty even.
+Particular apply most common year.
+Clearly walk campaign high specific.
