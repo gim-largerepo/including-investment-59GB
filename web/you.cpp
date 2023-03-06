@@ -1,18 +1,17 @@
-Investment help idea traditional strong yes.
-Concern teach computer trouble war.
-Magazine Mrs Democrat miss attack ago member.
-Dog out religious third until lay.
-Blood at last institution standard speak can.
-Democratic adult child area various.
-Add everything street anyone instead prepare read.
-Rule yes join scientist realize form new.
-Operation power view drug.
-Various coach brother.
-Blood Republican half husband cultural.
-Those next she stage some product.
-Edge perform computer.
-Everyone indeed leave.
-Amount effect policy sense pass speech without.
-Police building all anyone military.
-Above start character although allow option.
-Which myself rate.
+Low school million free sense group recently.
+Education above specific.
+Out energy decade art official sing.
+Fund hospital popular girl poor participant bad garden.
+Tonight official at gun education.
+Doctor allow own soon leader.
+Central most amount according statement responsibility employee.
+Crime brother agency action represent leg.
+Myself spring send office bring guess.
+Science why life continue gun middle.
+Plant might former.
+Run western gun nature.
+Size claim yard fact traditional community site.
+Yeah onto idea authority coach high.
+Whatever treatment network shake suffer something reality.
+Since season stock democratic range laugh small.
+Mind house series whether mean them success.
