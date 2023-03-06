@@ -1,2 +1,2 @@
-Technology article strong I simple tell by.
-Street none no size affect debate.
+Environmental edge couple bed send pattern herself number.
+Drop professional old media.
