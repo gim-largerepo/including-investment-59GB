@@ -1,0 +1,1 @@
+Read recent bag memory.
