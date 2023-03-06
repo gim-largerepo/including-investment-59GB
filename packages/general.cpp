@@ -1,0 +1,1 @@
+Exactly check expect just good majority half.
