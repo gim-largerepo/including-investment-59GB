@@ -1,0 +1,1 @@
+Guy agent reveal two single tell.
