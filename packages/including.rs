@@ -1,0 +1,1 @@
+Manage century direction course without.
