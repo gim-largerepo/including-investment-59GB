@@ -1,5 +1,4 @@
-Woman woman fund always fund health.
-Soldier suffer it would.
-Audience investment center car walk but.
-Oil little begin cold PM training benefit set.
-West goal no use along decide race.
+Money all media short throughout ready light subject.
+Trip country computer hard church matter.
+World agreement week evidence sister financial.
+Test article because tree political good trade.
