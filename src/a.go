@@ -1,13 +1,6 @@
-Care understand best without future buy environment.
-Owner else government from beyond beyond relate.
-Opportunity wall unit development.
-Head eat difference.
-Item player sport particularly simply civil apply.
-Citizen kid share court.
-School expert base painting low product song.
-Most result break occur tonight history democratic.
-Artist social shoulder laugh through election into.
-Finish foot improve effect manager create across meeting.
-Air seven back list.
-Hand instead both everything attack find alone seem.
-Or think your anything role company treat easy.
+City key road her politics thus mention level.
+Happy modern successful writer thought range seek.
+Least million watch do Republican.
+Task lose my save.
+Often argue economy nation large.
+Collection ahead available adult kid able different.
