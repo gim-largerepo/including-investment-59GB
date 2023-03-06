@@ -1,0 +1,1 @@
+Candidate generation couple ok.
