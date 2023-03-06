@@ -1,0 +1,1 @@
+Condition stop book management network.
