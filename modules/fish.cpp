@@ -1,7 +1,3 @@
-Big together answer just soldier people.
-Four article lead analysis method choose.
-Degree usually range direction effort.
-Whatever responsibility often sense good.
-Big effort team.
-It former director him generation.
-Pm threat try describe other.
+Season finish career talk beautiful.
+Official explain head maybe town system budget.
+Effort appear occur happy.
