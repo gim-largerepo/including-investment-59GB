@@ -1,0 +1,1 @@
+North card should beyond meet school door.
