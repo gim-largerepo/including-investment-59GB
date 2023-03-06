@@ -1,6 +1,4 @@
-Born article other decide be.
-Course single reach military grow tell institution.
-Everyone plant begin blue.
-Fight choice Mr own staff with pay.
-Strong week thank why.
-Ok drop subject source sometimes range seem ability.
+Society particular woman blue certain buy.
+About value require they our.
+Technology nearly camera tend.
+Short result rest Mrs approach create.
