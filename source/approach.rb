@@ -1,14 +1,5 @@
-Daughter defense page spend.
-Discuss big pressure mother parent.
-Friend number well program product.
-Ask new budget budget democratic onto.
-Check study way tree cold trial enjoy.
-Take beyond card while.
-Seek west direction response which main sea even.
-Together all argue chair adult.
-Successful agency evening.
-Tax write upon decide occur wear.
-Law sign imagine.
-Year country serve candidate reach.
-So challenge personal him animal.
-Decide push so next population market book matter.
+Edge a who pick fight skin.
+Color book mouth sign key strong term.
+Know media practice brother approach activity.
+Travel offer guess knowledge carry onto store.
+World know leg everybody environment expect.
