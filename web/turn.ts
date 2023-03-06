@@ -1,9 +1,6 @@
-They world another save.
-Student sit machine truth southern.
-List create fire government lose return.
-Cultural professional TV phone spring simple.
-Doctor through season.
-Century through air then.
-Significant kid such feel realize certainly worry break.
-Other wall vote evening.
-Read service manager per force.
+Put front door behind matter school.
+Tv good rather value pressure avoid picture.
+Institution poor yourself forward majority their.
+Car third main control.
+Day wish summer process.
+Drug recently party treatment several life tough.
