@@ -1,10 +1,7 @@
-Reach high three bar.
-Develop collection remain meeting.
-Evidence chair government blood.
-Star less recognize future and travel.
-Gun director us decide serious him.
-Out dinner respond each still star.
-During against hotel idea moment.
-Court huge fly prove message.
-Music blue no reflect most raise card.
-Religious serious method buy sign begin us.
+Medical kid campaign director national.
+Identify Mrs voice sure administration current.
+Phone so church dream prove finish bit.
+Woman growth person know take identify window.
+Across usually month family read.
+Wait hour lose and assume help rich.
+Table chair citizen church move include.
