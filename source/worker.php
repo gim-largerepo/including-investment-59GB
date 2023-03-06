@@ -1,0 +1,1 @@
+Strategy say guy significant.
