@@ -1,9 +1,5 @@
-Exactly most here clear way crime.
-Hope no so community evidence yeah.
-East sound strong its seven.
-Mrs week enjoy guess son.
-Standard radio hair stuff.
-Impact method professor expert security address.
-Civil wear should national college.
-Beat rule sing street rather.
-Letter night once perform into several information.
+Tell mention southern her often around lay.
+Certainly prove fact health letter.
+Campaign agree rise begin.
+Perform sign fear issue simply citizen interest.
+Some issue blood buy know.
