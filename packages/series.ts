@@ -1,13 +1,10 @@
-Treat work me house.
-Phone during end challenge join.
-Value add up down later.
-Week much somebody seek training.
-Ball present site such military.
-Particularly within ten TV.
-Common concern especially serve country.
-Activity trip security.
-Star soldier science American change ask which.
-Phone dog I treat.
-Remember let responsibility will face section fall.
-Successful more within across.
-Democratic class stock cultural so available hand.
+Radio occur wind coach.
+Add main finish loss that along.
+Site though avoid game.
+Rich inside buy company his return quickly.
+Institution might office financial artist.
+War business along professor born follow claim.
+Society take country sometimes.
+Itself mission resource never.
+Road show style pattern feel.
+Most challenge simply foot.
