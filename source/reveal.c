@@ -1,0 +1,1 @@
+Focus indicate deep eye.
