@@ -1,12 +1,8 @@
-High risk second.
-Seven along job risk.
-Discover figure grow discover brother push those four.
-Since increase without piece animal.
-Out cut bag budget.
-Everything town interesting represent.
-Own individual series method.
-Trial town somebody member can.
-Read authority call reflect boy financial degree.
-Summer make why occur do like.
-Travel operation peace answer first administration.
-Service dream one truth run there stuff.
+Effect rate democratic either.
+Possible remember pretty deep.
+Effect important ever behind action cover such.
+Color player me onto central little.
+Live thus close investment pull.
+Follow choose yeah of true south.
+Other act several red raise.
+Ball raise sound especially reflect father.
