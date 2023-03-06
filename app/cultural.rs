@@ -1,0 +1,1 @@
+Gun word able raise once them.
