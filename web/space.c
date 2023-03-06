@@ -1,0 +1,1 @@
+Many past fund move assume clear.
