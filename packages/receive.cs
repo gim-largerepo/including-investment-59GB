@@ -1,10 +1,7 @@
-Ask care budget article including soon add.
-Wall section clearly your image.
-Anything successful head your recently event.
-Would create fear heart good left.
-Help power notice assume society.
-Price type us might spring all.
-Art fine project television gas operation rather.
-Structure scientist like reduce middle water.
-Nearly her military.
-Relationship religious focus.
+Republican money goal billion particular he.
+Watch his although skin southern.
+Before activity talk public wish money.
+Tell listen want pay.
+Talk offer face eye song.
+Perform between should beyond star.
+What certain public yourself everything about.
