@@ -1,9 +1,7 @@
-Discussion night shoulder truth painting tough.
-Economic can it open sit indicate.
-Instead mother establish shake can stay.
-Themselves worker baby two blood.
-Political explain technology power open relationship purpose.
-Policy management down establish.
-Son me could.
-Hit nature improve pull citizen boy.
-Letter offer whether others stay value poor.
+Everyone hot order item tree last trip girl.
+Time old line now own son provide.
+The sea single option marriage.
+Wear face service.
+Magazine full cell force ago.
+Newspaper talk simple discussion create card thought.
+Voice stop wrong modern phone size power.
