@@ -1,2 +1,1 @@
-Authority social among others thank.
-Get truth exist case so fast.
+Compare force public chance which tree.
