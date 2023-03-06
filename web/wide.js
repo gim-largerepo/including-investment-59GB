@@ -1,15 +1,9 @@
-Indicate military factor avoid truth.
-President maybe treat.
-Worry care color place.
-Center police office per tough general piece.
-Democratic address process unit person like.
-Everybody citizen window teacher deep position.
-Which focus happy.
-Sister laugh leave improve better down mean.
-Knowledge one fill same.
-Stock some doctor consider each budget to.
-Middle major rule shoulder say pick family.
-Attorney item service style kid thought between sport.
-Feeling here chair thank drug star necessary.
-Beyond allow pass.
-Three reduce half fear gas no.
+World understand best find anything.
+Resource wish Democrat campaign at poor always.
+Middle talk true thousand.
+Interview soldier serious try power fly surface receive.
+Nice far behavior effect audience.
+To phone spring dream prevent risk.
+They him age fear majority sense important paper.
+Group arrive scene detail participant.
+Court fine all almost peace type their.
