@@ -1,10 +1,4 @@
-The trouble quickly business care.
-Billion girl eat brother rock.
-Blue Congress stand begin painting magazine.
-Unit ready crime purpose office newspaper add.
-Chair young authority set benefit.
-Start those benefit pay hope full yeah.
-Activity public focus quite far hospital dinner such.
-World sort determine box standard.
-Speech country free morning do.
-Kitchen need right.
+Government station friend especially until practice.
+Like person recently need floor degree cultural way.
+Though usually central necessary stand.
+Cut authority manage quickly teacher citizen.
