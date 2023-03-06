@@ -1,0 +1,1 @@
+Place medical require open approach soldier.
