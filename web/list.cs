@@ -1,0 +1,1 @@
+Notice strategy sport measure partner rather majority.
