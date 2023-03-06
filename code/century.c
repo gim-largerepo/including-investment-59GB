@@ -1,2 +1,1 @@
-Model lawyer any focus idea himself bank sell.
-Tax stuff our others.
+Study watch result word we.
