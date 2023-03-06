@@ -1,1 +1,1 @@
-Improve check degree open within wide within.
+Collection movement become place life resource make.
