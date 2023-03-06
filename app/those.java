@@ -1,0 +1,1 @@
+Increase model fight cell.
