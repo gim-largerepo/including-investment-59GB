@@ -1,0 +1,1 @@
+Range social accept which worker make family.
