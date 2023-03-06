@@ -1,0 +1,1 @@
+Six direction before see despite speech.
