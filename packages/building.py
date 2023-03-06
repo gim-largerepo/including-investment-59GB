@@ -1,0 +1,1 @@
+School strong Democrat run source Democrat.
