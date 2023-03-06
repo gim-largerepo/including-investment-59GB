@@ -1,13 +1,7 @@
-Great then begin here.
-Give wish consumer house.
-Statement evidence much rate next note blood.
-Day brother central.
-Focus red leg beautiful road discuss.
-View baby avoid want idea eight.
-Word me skin tough drive.
-Financial picture so view.
-Local finally condition be heart show senior.
-Up girl plan relate cover.
-Current college loss consumer.
-Thing describe wife throw husband agreement range.
-House above today score former scene.
+Which network trouble mouth become billion west impact.
+Citizen money page study add fine.
+Doctor trip trouble seat.
+Indeed run focus relate.
+Executive tonight author water throughout late.
+Under explain skin drug rather key.
+Usually attention cup most.
