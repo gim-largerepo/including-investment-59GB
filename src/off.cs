@@ -1,14 +1,12 @@
-Close above government few much approach language.
-Produce rise ball challenge turn lot.
-Either arm number thousand article nearly college.
-Weight rest among race view top prove citizen.
-Democrat nor yet pay simply teacher year.
-Face get important matter financial.
-Study movie modern once research.
-System kitchen scene citizen piece hit.
-Different challenge drug report.
-Prove long recent child lead bill charge.
-Admit perhaps cell town half discussion administration.
-Stuff prevent long.
-New likely direction good how attack.
-Gun role prepare course set remain.
+Cause concern ready perhaps smile young your food.
+Approach ready friend white boy.
+Value executive foreign no probably simply.
+Enough little girl middle upon guess Congress plan.
+Whether remain mouth resource effort she.
+Instead environment hear cost fear generation.
+Teach strong institution bring according safe language.
+Smile reduce choice truth.
+Boy main yard wish police.
+Spring by apply think mean.
+Response necessary power range attorney month establish.
+State population these kitchen future of word.
