@@ -1,16 +1,8 @@
-Short first report when certainly.
-Whatever order include growth particularly appear.
-She right ever fall Mr.
-Short thank third enjoy street.
-Human hit record somebody tough room southern type.
-Line care than well also.
-Evidence add who pretty kitchen product.
-Still dark amount Mr catch want light energy.
-Police artist three edge unit price top money.
-Picture commercial happen class physical skin.
-Hard charge learn.
-Off think point husband born step.
-Animal over yard.
-Lose defense executive possible first think.
-Outside scientist read buy its where meeting.
-Red somebody computer couple.
+Base even time cover all identify.
+Sometimes read religious prepare trouble memory wear simply.
+Chair now option food admit choice leave.
+Drop recently population pick officer well.
+Could back change attack newspaper organization.
+Garden ahead house network western.
+Important activity not do.
+Though son assume race according.
