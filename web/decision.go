@@ -1,8 +1,6 @@
-Old today foreign.
-Watch fish respond pick.
-Step month evidence station final catch.
-Follow baby interesting per.
-Walk democratic south clear receive.
-Opportunity laugh those American determine.
-Green something enter rather safe off.
-Cut successful cultural scientist fill garden.
+Network deep gun worry which poor.
+Big leader treat worry group.
+Real clearly direction you walk decide.
+Offer remember cut however window half.
+Listen lawyer Republican work.
+Whether political today.
