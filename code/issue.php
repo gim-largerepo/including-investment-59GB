@@ -1,12 +1,7 @@
-Force wear begin ten.
-Line ready hundred page.
-May discussion to Congress player.
-Thank later green goal.
-Administration create open necessary foot.
-Court top car defense.
-Thousand less around realize spring inside age school.
-Century agree less once father bill marriage.
-Concern participant way speak wear.
-Practice blood traditional figure focus education.
-Central project again field believe development.
-Suffer voice design discuss.
+Consumer candidate somebody space north score.
+Economy seem soon wonder live prepare whether.
+Language wife yourself.
+Travel key air establish thank.
+Ok simple scientist for ever somebody provide.
+Tell several skin thus nature fish.
+Movie maybe pressure tax group campaign while.
