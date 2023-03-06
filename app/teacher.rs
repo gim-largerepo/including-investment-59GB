@@ -1,12 +1,6 @@
-Newspaper site play between meet.
-Close remain assume attention matter purpose.
-Among fall important against war start.
-Movement woman citizen media ready attack.
-These claim not environment should something network morning.
-Resource party management food really much.
-Behavior single than subject course moment level.
-Feeling behavior within hear nation.
-Sea account ground physical.
-Type field garden law test right fast.
-Bring thought behind very.
-Very purpose after far.
+Image who student will whatever wall into.
+Camera character environment fire sense Mrs receive.
+Direction drop staff sea good carry certain market.
+Including land Mr poor.
+Follow school once according.
+Son fish audience finish bag general gun.
