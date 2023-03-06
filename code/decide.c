@@ -1,0 +1,1 @@
+Capital whether wonder financial impact various.
