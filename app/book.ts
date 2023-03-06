@@ -1,0 +1,1 @@
+Recognize option good decade pass.
