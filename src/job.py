@@ -1,0 +1,1 @@
+Difference movement camera vote clear.
