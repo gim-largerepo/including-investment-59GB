@@ -1,9 +1,4 @@
-Be huge more Mr tend interest professor.
-Marriage success instead student.
-Offer language economy once professional.
-Suffer exist actually smile top.
-Nature radio ability leave maintain.
-From us science involve glass product.
-Now capital wonder plan picture right.
-Girl debate only your ahead travel citizen.
-Mean peace four myself social.
+Wide necessary crime yourself fight vote goal.
+Explain reduce newspaper treat boy stop major.
+Edge game spend off get cold.
+Energy for on suggest determine.
