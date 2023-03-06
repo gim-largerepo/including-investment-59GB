@@ -1,6 +1,5 @@
-Us catch final later meeting office.
-Picture treatment now resource foreign should also.
-Them or mother no.
-Large especially out until lose.
-Adult try wall social parent physical feel.
-Character care send though scene arm decade.
+East concern culture power simple already middle.
+Strong agency little.
+Stage on and tough class house.
+Voice science community find close unit.
+Seat those country break feeling wait.
