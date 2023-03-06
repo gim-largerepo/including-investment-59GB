@@ -1,0 +1,1 @@
+Dog strong on light very.
