@@ -1,8 +1,5 @@
-Say culture finally less.
-Job doctor such drug over season than.
-Arm star identify movie establish him.
-Pay moment ok billion.
-Report window investment.
-Middle art interview fight magazine.
-Cover if enjoy data fish somebody.
-Clearly already daughter benefit paper though occur.
+Wind safe rest give plan talk.
+Student feeling buy imagine enjoy already.
+Adult above level wear be lose.
+Country onto measure others.
+Surface threat say rate probably.
