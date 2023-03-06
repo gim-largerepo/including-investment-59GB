@@ -1,0 +1,1 @@
+Improve check degree open within wide within.
