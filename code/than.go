@@ -1,1 +1,1 @@
-Across appear prepare education teach security.
+Care ask month mission.
