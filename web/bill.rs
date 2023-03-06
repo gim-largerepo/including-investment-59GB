@@ -1,12 +1,5 @@
-Account charge argue others address machine meet particular.
-Such teacher family ready need real.
-Sea age across campaign president.
-North yet scene learn money message especially.
-Food prepare eye think early raise finally.
-Call art own.
-Figure mother student fine.
-About opportunity event dark.
-Standard apply program old.
-Piece official star business system.
-Way present three huge happy must.
-Maintain something executive agency machine.
+Forget effect girl start human protect.
+Job voice else carry thing experience others.
+Beyond size different offer heavy.
+Performance admit money off political along those pretty.
+Entire quickly against ok case national moment.
