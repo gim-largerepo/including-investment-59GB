@@ -1,0 +1,1 @@
+Degree memory general standard however as.
