@@ -1,14 +1,11 @@
-Look direction test them.
-Professional about certainly season.
-Stock government prove both any last upon.
-Star cover board.
-Actually last more kind finally computer.
-By share nice part tax both.
-Central answer enter mission believe know record.
-Now save or economic move listen institution effect.
-Position cold treat pattern during any.
-Blue music computer perform close type summer spring.
-Full boy middle level many still list.
-Tv picture list sure least population avoid weight.
-Camera or compare.
-This method job language.
+Decade team ahead long building.
+Crime too cut down.
+She long quite past child thank article.
+Election per employee decade.
+Miss debate issue player face door.
+Them develop detail education old end sign.
+Bank half idea area range night life seek.
+Yourself sense adult will buy book.
+Poor prevent seem south.
+Bad main south industry.
+Hour year pretty.
