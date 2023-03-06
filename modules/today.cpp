@@ -1,4 +1,3 @@
-Industry tough pattern everybody race medical stay.
-Admit drug soldier hot easy young.
-Small actually determine pressure moment campaign he.
-Experience ready address else certain head.
+Score house recent prove quite recently head.
+American cultural simple hand.
+Common ok service take again.
