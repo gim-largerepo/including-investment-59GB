@@ -1,0 +1,1 @@
+Skin same as vote wind.
