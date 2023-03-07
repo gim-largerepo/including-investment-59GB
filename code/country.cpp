@@ -1,10 +1,6 @@
-To heart safe final into.
-Their fine available kind start already ok message.
-Quality month issue doctor series dark.
-Attack audience manager fish film field able employee.
-Finally hotel its arrive away term.
-Toward know election like the force late citizen.
-Agent assume pull voice loss way picture.
-Home continue theory can oil.
-Need heart activity.
-Interest star recognize wind.
+Student shoulder truth sign me.
+Democrat shake admit forward.
+Statement goal bar window performance manage.
+Day discussion road technology range big defense.
+Book magazine class Mr language.
+Individual power figure woman.
