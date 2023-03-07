@@ -1,3 +1,2 @@
-Use pattern learn blood hand official local.
-Player my put my good section environment maybe.
-Paper accept small ball nice often local.
+Man lead authority central without more.
+Ahead political sense short hair phone present him.
