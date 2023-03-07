@@ -1,0 +1,1 @@
+Pick board day energy detail more require.
