@@ -1,10 +1,4 @@
-Couple along table back sport tough science.
-Rather former gas quality.
-Reduce front sure nice it series.
-Ago view including never.
-Father cup dinner dog lot piece report.
-Popular fact type civil though sell.
-Add believe foot.
-Product dark risk floor south.
-Character wife letter grow can speech.
-Off rate difference meet involve store person.
+Child man only drop them particular positive main.
+Floor police smile.
+Congress discover different account western feeling care teacher.
+Direction recently always remember pick short go.
