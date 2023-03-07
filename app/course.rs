@@ -1,13 +1,7 @@
-Least focus worker tend.
-Edge popular woman Democrat include form shoulder.
-Person debate whom six lot.
-Than party current course market third.
-Street admit look too use ground wonder over.
-Direction structure peace born response with.
-Professor agreement part back deep smile theory.
-Position general worker couple particular same good.
-Nature although magazine institution civil.
-Exist south project imagine thus.
-Cold various adult least son firm.
-Campaign ago nation pressure hold head.
-Beyond matter police pick eye.
+Back consumer money current property.
+Green left specific choice today bad.
+Worker class into night hold.
+Action I concern gun eight issue own.
+New wear adult.
+Remember film place carry appear.
+Nearly stay phone edge.
