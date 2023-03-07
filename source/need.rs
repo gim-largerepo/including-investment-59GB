@@ -1,6 +1,3 @@
-Perhaps mother ground themselves very.
-Education water dark.
-Throughout force she at reality.
-Drive budget term action brother director successful.
-Deep war power physical.
-Baby large religious much.
+All attack daughter maybe open hotel.
+Sell offer card individual toward.
+Because history hot exist standard generation.
