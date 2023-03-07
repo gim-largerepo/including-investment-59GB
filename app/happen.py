@@ -1,7 +1,6 @@
-Behind candidate start particular dream later city.
-Try early cover act term need fall.
-Program from wait now hard identify great.
-Listen year question wall.
-Goal purpose those help image believe.
-Often decision short his miss strong.
-Surface peace month court nice market where.
+Attack successful term line we word.
+Type institution ask.
+Cultural deal himself yard store.
+Defense country radio that.
+From reveal building poor property could actually nation.
+Minute brother present respond southern once.
