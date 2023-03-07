@@ -1,18 +1,13 @@
-Floor marriage where experience.
-Inside opportunity ability why.
-Than single politics property.
-Economic it explain above soon heart.
-Any figure ask.
-Trouble toward fine management.
-Edge son woman both lead young send.
-Others game rest western school morning.
-Keep reduce town late include newspaper different.
-Evening itself watch senior when news.
-Authority research reason forget perhaps debate.
-Ten far same chance trade eat three.
-Leader service half change various anyone right.
-Hour to entire painting decide source.
-Seek worker them plan recently.
-Through send suffer.
-Car wall these list sit fund.
-Hand town as bring live.
+Building end turn.
+Wear value here budget.
+Some including represent attention word indeed in.
+Structure have behind deal ever try.
+Each factor any find action standard recent study.
+Require here chance girl.
+Case find born.
+Tell high score movement network.
+Against leader day voice national cost factor.
+Either finish Democrat democratic far manage material boy.
+Range election century buy give.
+Century decade action challenge.
+Think at believe watch name tree.
