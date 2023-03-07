@@ -1,0 +1,1 @@
+Feeling wife consumer resource fall but past.
