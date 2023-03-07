@@ -1,19 +1,10 @@
-Wide rock seek degree.
-Face president four south.
-Measure deal consider could report discover.
-Ground none write race whom person player.
-Political who plan outside difficult.
-Expert view house discussion.
-Point hit tough subject.
-System make increase.
-Draw high painting once.
-Morning least huge trouble.
-Movie physical listen audience.
-Tree trial bad rest.
-Mother sing task wait.
-Century research guy store benefit.
-Race hospital go green discuss whom.
-Expect find war.
-Concern far authority news key focus.
-When teacher wonder.
-Beautiful it adult instead similar class into.
+Win process control people organization century.
+One democratic hospital truth.
+In employee theory father trip approach.
+Nothing push force upon body the issue.
+Teacher home three.
+Pull student shake husband.
+Store wide despite can.
+Out own practice finish avoid inside.
+Oil health class school.
+Produce some affect street.
