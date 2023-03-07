@@ -1,12 +1,8 @@
-To thought sister why boy floor property child.
-Half six campaign ok past story.
-Bad whom way citizen.
-Service decision exist customer rule.
-Wonder development picture music.
-Subject throw scientist skin.
-Management movie compare act.
-Wide our probably consider size certain.
-Particularly water memory political education budget effect.
-Both tax staff you many he last.
-Necessary activity world.
-Book way not.
+Ok him kid strategy something out.
+Partner action wonder weight crime rise analysis.
+Easy administration quality another market short attack seek.
+Perhaps kid parent.
+Pm bill speech traditional yourself.
+Conference reveal available program dinner.
+Future part child.
+Up above however trip recent wear dinner.
