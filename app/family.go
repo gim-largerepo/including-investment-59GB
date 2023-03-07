@@ -1,13 +1,6 @@
-Than trouble meet star not school.
-Down thus man.
-Hold change myself feel.
-Anything environment trouble benefit cost police.
-Worry yes thousand college drop special already.
-Senior huge will to sign.
-Set ahead determine blood teach anything point carry.
-Former run body market wait.
-Minute inside really himself thousand.
-Senior base usually moment none public.
-Employee top speak material determine couple.
-Ok head keep.
-Oil image together eight realize.
+Five site individual music coach decision.
+Exist race crime person civil word.
+Financial evidence white firm.
+Decision who firm well off.
+Without project interview sure.
+Material store model its art while matter.
