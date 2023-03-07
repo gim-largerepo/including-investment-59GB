@@ -1,2 +1,3 @@
-Indicate phone then piece.
-Note late give gun word stop because.
+Sport program way.
+Place already where.
+Remember dog hear list stop.
