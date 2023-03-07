@@ -1,0 +1,1 @@
+Figure keep result act type economy.
