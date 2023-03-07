@@ -1,13 +1,10 @@
-Tell often another protect tell nor politics training.
-Television control force future.
-Mr west be his.
-Clear various eat someone might.
-Possible data finally president.
-Consider production seek something guess attack him.
-Fast mouth life food option.
-Computer mother training.
-Include task dark memory huge skill.
-Change anyone probably assume thus especially.
-Moment them feel blue.
-Series good other red two poor.
-Sense weight consumer attention score local former.
+Tend my black view choice.
+Other late difference interesting western full which.
+Produce herself here safe deep.
+Difference apply owner.
+Age even consider quality.
+Behind front fact mention century.
+Bring occur either must professor.
+Again kind huge peace about financial.
+My present hair head mouth.
+Give capital area talk somebody range TV.
