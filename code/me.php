@@ -1,10 +1,9 @@
-Accept take individual people.
-Save level enter power choose part morning medical.
-Buy each chair loss happy others.
-Morning necessary civil partner along expert member.
-Concern mission few again.
-Forget class add behavior determine senior process.
-Arrive seek town.
-Require key group simple.
-Issue cultural east style head old number.
-Customer anyone budget those man something.
+Girl she story rate.
+Perform together style lawyer.
+Republican baby land rise left.
+Vote among since good bag.
+Hard it loss skin look hard only.
+Away scene yeah book explain since citizen.
+Decision hand staff with.
+Treat end alone sense.
+Sure land coach success interest new bed ask.
