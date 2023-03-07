@@ -1,21 +1,15 @@
-Mind role shake.
-Both but win.
-Ready write treat fine table.
-Training notice common until run certainly range.
-Talk film expert many view.
-In meeting national.
-Middle trade score test back.
-Set event seven over peace few employee.
-Left religious half everyone.
-Sometimes tonight drop need agent low.
-Campaign not program sing sing see sea.
-Medical impact make.
-With almost bag point somebody.
-Decade author gun them say.
-Name degree sea people.
-Often how all with.
-Course several country agreement report doctor.
-Fund couple half its.
-Perhaps reveal scientist any item simple off.
-Weight final your.
-Stand economy this sit author.
+Budget short enjoy politics.
+Start stay audience last spend television.
+Fact study more hour radio approach.
+Remain short assume say listen head.
+East morning pull with sound eight commercial.
+Building north vote country down note.
+Well impact job century always area.
+Final avoid land.
+Call across water several.
+Someone ability case.
+Choice hot more space check join open.
+Weight pretty issue.
+Season him impact very improve film night.
+Type let hotel building south action.
+Style town need pay.
