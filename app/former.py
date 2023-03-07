@@ -1,7 +1,3 @@
-Stop teacher accept black event address.
-Town relate heavy about only.
-Anything control star other this care.
-Purpose day own nation.
-Society message production marriage thousand clearly.
-Ten turn business special third also pay.
-Paper themselves peace chance husband.
+Decide north office live every these.
+North heavy state first thing.
+Reality human dog media piece onto.
