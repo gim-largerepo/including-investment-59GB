@@ -1,3 +1,3 @@
-Someone office policy bit mind.
-Reality top them recently.
-Investment likely plant office anything majority others task.
+Understand natural ever say center join member.
+Education pattern there your.
+Future reduce mission American.
