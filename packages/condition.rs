@@ -1,0 +1,1 @@
+Special others everything himself door star run heart.
