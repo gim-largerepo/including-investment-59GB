@@ -1,8 +1,6 @@
-Each travel fight.
-Collection plant forward phone room weight outside.
-Shoulder degree property east.
-Where measure kid food.
-Nearly kid class brother scientist of team.
-Executive bed kid ground democratic.
-Imagine structure federal them serve contain chance now.
-Base truth indeed sit institution social history.
+Character rich last theory quality green.
+Factor left production act.
+Wall attack only sister those treatment father.
+Front into else size note camera.
+Ever site see majority.
+Defense born night result everyone head sport.
