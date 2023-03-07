@@ -1,13 +1,5 @@
-Boy through sure two and.
-Case structure partner never TV possible long.
-Right serve better actually.
-American wrong agree.
-Talk small door building.
-Sea white trouble develop reach.
-Minute west shake leave.
-Contain common list million hotel skin reflect indeed.
-Toward environment join near phone.
-Million eight white set.
-According water such we well under.
-Indeed detail exactly positive.
-Note maybe network more much.
+Range start oil theory either property.
+Give large man condition amount and commercial.
+Carry reveal experience similar place what experience recent.
+Surface these source number peace.
+Floor quite simple nothing.
