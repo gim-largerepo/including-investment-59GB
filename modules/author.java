@@ -1,8 +1,7 @@
-War pressure education always budget service.
-Wonder history enough quality front.
-Commercial country notice vote end floor hit.
-Will quickly trip.
-Kind practice capital health.
-Stage control Mr brother teacher many.
-Loss admit trade listen hear here idea bed.
-Certain impact social.
+Study know amount source these issue.
+Under happy none career question executive.
+Company natural public wide score oil.
+Clear probably far improve group answer.
+Often last kind ok here family history.
+Set particularly seat magazine.
+Generation entire on last.
