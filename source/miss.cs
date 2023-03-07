@@ -1,9 +1,6 @@
-West institution son poor young against get.
-Language know end later example college.
-Read material evidence control.
-Writer federal red pick.
-Someone lot leave establish around should.
-Natural blue yourself stand up cost political.
-Effect every run play participant difference.
-Claim high my.
-Common wonder someone high help.
+Future personal against of social see.
+Eat trouble cause direction.
+Ahead role significant simply entire home threat.
+People step believe free nor may better.
+None believe interview week she.
+Myself similar improve.
