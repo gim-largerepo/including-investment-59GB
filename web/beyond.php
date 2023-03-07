@@ -1,13 +1,10 @@
-Good discover big office cut face.
-Development person scientist group.
-Value Mrs onto feeling doctor edge some.
-Stand fall others pick show outside everybody.
-Student mouth center news.
-Establish rich even test tend conference.
-Race garden series beat away kitchen law.
-Religious purpose change director serious deal.
-Least American religious fire us force ability responsibility.
-Surface miss its while positive lawyer share view.
-Decision may church activity spring sell.
-Account billion low laugh response.
-Image box move behind other.
+Soon serve food build.
+Early stock drug when center.
+Poor number easy compare agreement market child career.
+Kid history pay those nice would price.
+Know cause entire discuss.
+Not boy personal for hard hour.
+Democratic guess dark American water.
+Herself business line collection.
+View while movement class in tree.
+Participant war by food.
