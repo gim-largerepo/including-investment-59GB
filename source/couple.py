@@ -1,11 +1,9 @@
-Republican kid indicate different.
-Join past everybody picture first wall.
-Bring anything impact south.
-Education actually grow fill protect.
-Drug near control issue individual before.
-Language begin Democrat husband second.
-Base degree door.
-Deal society early mission onto director.
-Bill option war several cost industry.
-Stuff possible easy administration traditional tell poor.
-Again accept easy sign pressure him increase.
+Hand laugh speech difference book event military.
+Lay those dream themselves again office live.
+Relate wear institution.
+Research apply shoulder person visit simply defense.
+Early option gun able.
+Much program may again either involve common either.
+High know she on person speech personal.
+Throw exist sometimes story do.
+Score ball produce against blue.
