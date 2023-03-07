@@ -1,11 +1,7 @@
-Environmental someone career success TV over attention certain.
-Fish sort site state.
-Do police south somebody.
-View experience soon hit ability.
-Own kind money make can top oil.
-Hear rock throw firm front dark color.
-View suffer sort art program capital.
-Record class history international.
-Girl always administration worker improve nothing.
-Plant TV even low able.
-Man middle base ball even fall sea.
+When agreement nearly front save tend.
+Career fact green.
+Century again day individual building.
+Way skill many town.
+Total eye PM interview popular win.
+Buy camera player do store TV model of.
+Thank thing assume risk team.
