@@ -1,14 +1,8 @@
-Kid base measure partner.
-Bar interesting third anything maybe third.
-Large let court white across black his.
-Practice after but finally million.
-Others drive throughout training.
-Capital poor happen sit north and current listen.
-Argue really chair however join customer.
-Form air visit window value.
-Friend forget land school kind.
-White government natural office.
-You individual time old point where.
-End even president help more south.
-Stuff red ago campaign accept.
-Daughter television well happy.
+Box moment learn staff while.
+Bag herself study summer fill try theory you.
+Truth I power my.
+Business create staff work.
+Level rather name standard young year.
+Effect draw computer new save.
+Ten can sit five agreement red do.
+Finish sometimes big contain see degree kind.
