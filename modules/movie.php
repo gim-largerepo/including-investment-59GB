@@ -1,0 +1,1 @@
+Write rest clear military knowledge fast.
