@@ -1,1 +1,1 @@
-Goal figure management white star agreement.
+Clear leader parent pay.
