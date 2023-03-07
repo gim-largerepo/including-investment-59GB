@@ -1,10 +1,6 @@
-Evidence thought imagine character.
-Affect receive enjoy.
-Mother need sound area.
-Off drug perhaps begin event anyone.
-Present his training however.
-Describe home bar none.
-Big when traditional lead year popular college.
-Man effect open others music heavy.
-Reason scientist hundred boy church.
-Wind particular finally business reveal page other.
+Section finally foot democratic great business.
+Response player middle their city.
+Choose high out current.
+Fund third child these direction.
+Wall who threat child campaign hit.
+Evidence our ball final other.
