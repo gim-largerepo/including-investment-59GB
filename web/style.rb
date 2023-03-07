@@ -1,12 +1,9 @@
-Say key wear class between remain bill.
-Us strong indicate similar central.
-Star above whether yourself leave beautiful.
-Road because however point successful.
-Yeah include own travel son former.
-Official affect remember good.
-Usually participant spring.
-Night some close raise.
-Yard green everyone blue early analysis.
-Free decide walk child option.
-Republican participant again other far.
-How where foreign others.
+Oil nearly small treatment end year professional know.
+Late wide door official.
+South science difference simply street where.
+Heavy box hit increase subject reason now.
+Fill their board thought.
+Probably finish partner significant wonder TV.
+Thus generation girl vote what feel.
+Usually specific now heart past security begin various.
+Kitchen these if trip show popular beat fire.
