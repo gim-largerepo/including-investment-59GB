@@ -1,2 +1,2 @@
-College view hear interest writer.
-Building cup clear.
+Young identify consider teach run bit take.
+White gun alone voice us get away.
