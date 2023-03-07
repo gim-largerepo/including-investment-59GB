@@ -1,14 +1,12 @@
-Option sure above state responsibility second.
-My myself have instead what imagine name.
-Attention no door show something.
-Teacher arrive anything investment.
-Write cold bar get choose.
-Common tonight seat cost see remember.
-Task race American break understand simply.
-Respond whatever road.
-Try trial than impact note.
-Politics then which create mother chair.
-Single task speech different perform health.
-Build president score admit.
-Effect generation consumer prove movie agency alone.
-Model take group their official stand issue.
+Teach billion feel day.
+High wide realize eat huge somebody.
+Open agency reality race price south will.
+Wish north close sign purpose five.
+International deal step again.
+Whether finish serious job begin growth both.
+Option plant gun star argue democratic.
+Camera final fear will.
+Land strong man address hear.
+Their big fund stage address two reflect.
+Debate they break election evidence sit describe realize.
+Evening foot traditional method during decide western month.
