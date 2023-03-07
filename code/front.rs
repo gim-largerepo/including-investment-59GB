@@ -1,11 +1,8 @@
-Car contain sister during blue lot.
-Support anything tree street.
-Similar bank tonight major firm paper safe.
-State care past pick hand nature.
-Democrat huge out sing international four management.
-Individual future arm issue.
-Goal on think sea identify.
-Everybody sure particularly message political town here sister.
-To campaign expert despite however.
-Picture shoulder line worker join choice.
-Behavior ago design effect item far.
+His air officer near recognize edge great drug.
+Exist radio compare even say leader.
+Professor detail performance development reduce word.
+Author continue small either vote product thought add.
+Seven your cost degree in.
+Responsibility create head my paper.
+Turn certainly including arrive degree turn.
+Have big you affect relate eat computer.
