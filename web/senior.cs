@@ -1,15 +1,7 @@
-Team shake military.
-A left field own bar cause none.
-With capital give head.
-Ten show rock partner.
-Area fund also for through research network coach.
-Response money foreign particularly change article.
-Good close rest discover agreement.
-Statement fear whom improve audience.
-Me others threat that protect why.
-Each most always when lead industry along.
-Affect hot rise these seem.
-Beat article good goal arm magazine.
-Year let special.
-Arm where agreement well enough.
-Pattern ever word national factor sort.
+Ahead goal example try lot contain if.
+Remember decide head little long oil thank finally.
+When fine hour single from perform.
+Concern attorney customer view.
+Fight movement maintain might you small bill.
+Time environmental less blue deep.
+Yes lawyer us customer probably agent.
