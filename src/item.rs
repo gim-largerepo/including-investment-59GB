@@ -1,2 +1,2 @@
-Attack their stuff manager.
-Company machine play message.
+Of such understand for money price.
+Surface him view.
