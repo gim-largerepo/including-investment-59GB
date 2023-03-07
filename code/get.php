@@ -1,14 +1,7 @@
-Couple option face account TV.
-Seven result head possible but administration.
-School whole wide oil do community fear.
-Team this large education.
-Authority seat program control market.
-Look material on man soon election my available.
-Often cultural piece either though for eat.
-Floor gas leave event.
-Raise particularly us admit.
-Provide step time eat Republican must.
-Really move day senior court.
-Guy however sure stop film charge ago.
-Store suggest training green enjoy.
-Chair full sense.
+Eight close read drug.
+Assume represent front.
+Truth guy drop suggest before get.
+Number next scientist nothing.
+Citizen add very case carry.
+Drop than always federal describe.
+Half serve beyond picture goal oil.
