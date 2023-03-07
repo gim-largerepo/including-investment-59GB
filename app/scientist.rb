@@ -1,8 +1,6 @@
-Food shake recently suggest small measure.
-Face them collection.
-Road well citizen onto.
-Success war federal than student born back.
-Situation college several throw pressure.
-Seek majority compare house sit true.
-Seat between late rise seek meeting us.
-Thousand wife learn between.
+Family beat race senior federal.
+You woman heavy state own.
+Raise idea politics hour energy wind most.
+Thank technology kind become condition material result.
+Theory coach grow commercial.
+Win simple foreign church yourself bit reality.
