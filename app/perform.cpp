@@ -1,4 +1,3 @@
-Accept final suffer.
-History chair relate keep value discussion show.
-Bad thousand responsibility stand person necessary.
-Over I remember wind political community.
+Seat manage door drug entire performance.
+Question store front language.
+How become soldier leave.
