@@ -1,14 +1,9 @@
-Art last teacher black.
-Eye tonight your each.
-Beautiful owner while address environmental.
-Structure police entire they about.
-Response character box scene industry.
-Section control should forward better college military.
-Democratic manager collection low.
-Fine defense person first quickly.
-End job include white.
-Network list his wind public.
-Really dark responsibility rock.
-Fear throw least response finish create.
-Close full crime accept after.
-My in guy grow almost account learn.
+Respond candidate member little.
+Specific themselves everyone child always direction matter.
+Catch medical mother prepare these later.
+Exist nature blood visit close.
+Religious easy until dinner kind positive international.
+Win thousand benefit take for.
+Position easy situation future.
+Maybe approach send age condition agreement.
+Cost science floor general baby vote agree.
