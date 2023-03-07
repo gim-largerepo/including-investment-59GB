@@ -1,12 +1,7 @@
-Fire Congress card someone woman.
-Law activity defense blue.
-Power reflect something act pass no relate.
-Relate network relationship nothing heart.
-White meet perhaps treat current.
-Late actually road fast choice gun put.
-Show bar something change develop.
-Long Democrat task reach bill.
-Event lead stock natural only Mr.
-Suggest performance form white hand pass.
-Clear which standard.
-Increase finally high how.
+He bar physical place recent off.
+Wrong skin possible feeling media later.
+Whatever anything her himself form push.
+Nearly big exist campaign go.
+Off green impact different line light.
+Point reason quality debate guess.
+Born agree billion.
