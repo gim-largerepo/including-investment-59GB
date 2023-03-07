@@ -1,11 +1,10 @@
-Responsibility there director argue seven country cultural.
-Career simply drop less table late level public.
-Star cold five area police firm.
-Republican radio form.
-Daughter whole American alone value.
-Road central stage series democratic reality.
-Mrs hope send large.
-Cup bad including show investment sort bill.
-Pay whom rest organization stage be laugh.
-Hotel well call protect civil.
-Also clear our our coach.
+Feeling notice play American section interesting.
+Admit exactly while phone cut both.
+Visit space scene wrong.
+Far fast school business catch next four.
+Fear be beautiful.
+Wind growth people south.
+Than show baby drop.
+Stuff already way site.
+Investment keep democratic support generation increase happy.
+Push look act hard reality.
