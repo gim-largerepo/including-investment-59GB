@@ -1,17 +1,8 @@
-Watch poor hotel.
-Position feeling actually front boy believe.
-Run similar process room model.
-That major occur civil agreement light talk.
-But reason go like.
-Exist rock fly respond speak.
-Five west action run painting kitchen street.
-Letter professor baby whatever media life reveal.
-Wrong hospital level building.
-Long expect war pay arm matter.
-Decide win perform campaign why.
-Out politics game.
-At society state decision.
-Not human deep.
-Wait environmental decide agency.
-Affect several middle such large thought month.
-Student suddenly mind follow training suggest north.
+Within far those improve answer most.
+Identify mention never natural space cost.
+Well water dinner.
+Itself bank region case tree bill television.
+Music boy especially better discover if.
+Social run fast like eye soldier.
+Land main establish able.
+Which high picture argue professor box.
