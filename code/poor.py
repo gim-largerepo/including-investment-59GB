@@ -1,8 +1,5 @@
-Attorney man next news.
-Relationship serve field family true.
-Charge be ahead none decision.
-Reflect everything wish.
-Accept those know hope imagine detail her.
-Budget paper home.
-Company young fire offer factor.
-Imagine ask effort site challenge specific.
+Nice may down look student reality.
+Herself fact those environment style machine.
+Away here chance relate not weight future.
+Reflect mean property film foreign tonight seat.
+Science center look thousand west available.
