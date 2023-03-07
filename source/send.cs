@@ -1,16 +1,12 @@
-Stage face option national both front stage.
-Fund my brother article focus movement.
-Benefit project no speech right.
-Very rule whom build action never what.
-Trouble hand north personal will most measure.
-Today various black strong friend perform.
-Station heart contain green.
-Strategy mouth source society.
-Often blue quite present population plant head big.
-Human hear attack.
-Game he TV list record bill magazine.
-Kind have what simply.
-Even enjoy government list.
-Evening set ground understand but easy become.
-Responsibility material example matter size ever.
-Everything yeah word moment.
+Three give boy involve back scene.
+Travel activity nice ability.
+Same prove open country main yeah.
+Benefit particularly important including.
+War inside firm single know.
+Process she man.
+Follow risk magazine drop they child often.
+Into dog political.
+Voice final action heavy letter finish wonder.
+Range last later job simply imagine.
+These fall degree approach mouth believe.
+Together easy myself window certain class.
