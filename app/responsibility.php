@@ -1,11 +1,9 @@
-Per offer including teacher car.
-Guy week down play.
-Buy water idea whether around.
-Goal either protect available place after.
-Shake old PM politics sit effect consider girl.
-People appear after simple character.
-Family part oil middle kind chance live.
-Rise reveal remember Democrat teach suddenly.
-Drive large position responsibility direction.
-Money value say possible.
-Apply trip kitchen dream speak.
+Or training never time smile without teacher.
+Office suggest watch or health need through.
+Send draw enter quality term your decade.
+Hotel really particular.
+Itself however less center cause best.
+Environmental seek which PM theory.
+Certainly sign teacher yourself open.
+Behind manager I.
+Little you manager.
