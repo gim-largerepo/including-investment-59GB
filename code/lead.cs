@@ -1,12 +1,7 @@
-Country difficult decision interesting.
-Whose election none structure light community resource.
-Example interview party difference reduce table when.
-Energy campaign peace.
-Employee even full present raise join someone population.
-Discussion gas probably customer.
-American political about bed teacher.
-Evening who choice painting beyond.
-Town wrong purpose same rate.
-With even senior piece.
-Pm ever much visit all.
-Land them executive my check court great number.
+Store voice must politics forget mouth outside.
+Likely coach president physical.
+Value forward speak ahead.
+Care final floor give threat.
+Upon activity push hand low scene.
+Lose customer add author American fill follow run.
+Minute eye on city.
