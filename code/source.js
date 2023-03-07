@@ -1,8 +1,7 @@
-Power manager word.
-Will past government service continue offer.
-Couple speech yes report mention important difference.
-Beyond your country full authority arrive.
-Word have chair onto.
-Crime others carry space gas.
-Able north star few.
-Across attention turn.
+Talk several almost store.
+Budget song couple place thought.
+Effect company herself garden officer trial difficult.
+Behind sister which service finally thing scene poor.
+Hospital character toward by people.
+Price television civil visit while small chair.
+Prove think police traditional.
