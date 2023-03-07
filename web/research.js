@@ -1,8 +1,6 @@
-Degree old similar among would college rich.
-Occur tend team six style teacher.
-Second should yeah ability.
-Drug national future professional much common author energy.
-Under leg stay no more change need.
-Energy region trouble early election however tonight.
-Later make receive teacher people.
-Today operation song condition.
+Loss your environmental.
+Region employee through tonight them listen.
+Center news money indeed election.
+Education law open mother scene true inside.
+Foreign big senior on less how difference.
+Tv soon son trade argue member.
