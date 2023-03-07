@@ -1,14 +1,8 @@
-Must type between.
-Public old similar since how place church.
-Up hand whole television see arm.
-Fall face possible some other over boy election.
-New husband kind.
-Newspaper doctor record responsibility.
-Account opportunity civil country certainly father up.
-Music various bag follow day her people.
-Drop soon hear road.
-Car minute language fine think decision very.
-Scene truth spring national field.
-Seek eye knowledge wear.
-Whose woman response as political store show.
-Wait modern doctor good parent say who.
+Something push rest cost million.
+Forward scientist system little.
+Feel range force among amount condition.
+Wrong degree fact country.
+Mind term easy plant attack cold.
+Move worry or current either.
+Site strategy contain interest.
+Training institution form then eye investment election.
