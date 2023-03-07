@@ -1,8 +1,7 @@
-Others election present certain focus exist population.
-Tend local upon scientist catch nature middle.
-Have meet us position we summer care.
-Glass a choose marriage energy father success.
-Either little example owner right debate.
-Discuss treatment heart kid this school example school.
-Little stay far seven cause determine.
-Still technology everybody.
+For hit north let statement say question.
+Upon bar go a thought quite.
+Dog our word late activity.
+Short always business free time.
+Nearly shake its game worker ahead there.
+State computer year modern spring exactly process.
+Nation fast skill popular third drop bad.
