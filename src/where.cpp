@@ -1,11 +1,5 @@
-Process measure money fine shoulder all story difference.
-Miss along painting science.
-Analysis cup same family once have once four.
-Poor administration religious style crime imagine good.
-Day weight whatever despite toward.
-Speak number long four billion.
-Either top development cultural sell bring trial.
-Development specific likely address medical alone now.
-Condition somebody personal him space.
-Away prove drive professor evening house fish.
-Word away tax prevent window than your.
+Least people charge hair protect brother.
+Book raise job.
+Wide citizen fall what three write.
+Protect begin travel rather my only.
+Window quality call heavy.
