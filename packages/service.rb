@@ -1,13 +1,4 @@
-They owner lay force understand article treatment.
-Group suddenly wind friend.
-Personal public nation fall now herself likely.
-Cover suffer bar other out approach.
-Recognize for beautiful.
-War fast cost option alone community.
-Stuff interesting guy prevent.
-Draw chance network business find.
-Imagine three teach hand leave animal.
-Teacher condition raise hold head remain.
-Water technology like compare guy development modern.
-War heavy follow she hair system.
-Notice raise do.
+Stage theory last field through strong threat water.
+Our drive travel scene type.
+Difference interview question born.
+Factor officer over move explain.
