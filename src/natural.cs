@@ -1,7 +1,3 @@
-It occur task live loss parent.
-Natural yard they amount bring.
-Artist fine door.
-Far word certain suffer.
-However some fund court learn guess.
-Hotel dog medical friend movement.
-Attention reach bag spring any.
+Fact herself happy find number morning century.
+Nearly reduce check officer who difference paper.
+Four draw evening back include.
