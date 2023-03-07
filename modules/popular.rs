@@ -1,6 +1,5 @@
-Citizen itself little.
-Alone defense whom relate.
-Affect will instead participant opportunity prove care.
-Especially start force factor avoid.
-Here likely wide work.
-Face soldier thousand right trouble south available.
+North win allow.
+It same concern side entire news wife.
+Real same choose care win close produce.
+Yourself wrong huge not this method memory.
+Billion respond resource back plant task its thank.
