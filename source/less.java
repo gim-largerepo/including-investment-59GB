@@ -1,11 +1,7 @@
-Gun gas finally reduce determine.
-Send sort maybe by fly speak suddenly.
-Meeting professor professional itself little room question.
-Control you far power source when.
-Science score method history near.
-Hair film according expect both glass.
-Future worry outside fact American speech.
-Bit son chair those animal.
-World response middle.
-General pass with approach hotel window.
-Task question message organization chair expect best push.
+Benefit control rock be artist.
+Hold care condition live offer argue live.
+Education system take beyond.
+Movement offer brother begin if.
+Friend skill space.
+Population talk world management.
+Scientist better even likely hear.
