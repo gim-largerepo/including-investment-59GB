@@ -1,2 +1,1 @@
-Choice entire guy training deal take.
-Reduce peace physical plan drop for.
+Administration always wish cut report.
