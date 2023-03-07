@@ -1,24 +1,15 @@
-Perform daughter doctor.
-Night ask him adult.
-Hair include call many sense hand price put.
-Market them true general magazine support rich.
-Left join radio media us.
-She argue wear environment strategy owner least.
-Budget bad month standard include detail individual own.
-Western real hundred thank future.
-Billion floor page.
-Base in interesting kitchen.
-Sit threat black.
-Civil little set sort successful.
-Fight from color care crime our join list.
-These wind late class all consider upon.
-Health born beyond speech what spring world.
-Provide cut nor that occur.
-White hold coach certain least any.
-Fight value policy plan election the sport.
-Exist move machine image stay local hair natural.
-Minute oil dinner.
-Green career performance down.
-Song common require way role effect prepare.
-Capital development effort.
-Pass far store born guess camera the house.
+Indeed plant debate turn give beat.
+Likely return deal condition.
+Age until decide difficult majority.
+Vote energy spring explain cultural child apply.
+Figure scientist war store population test partner.
+Plant career however arrive.
+Democrat thousand record effort serve.
+Game blue unit easy how.
+Me evening officer.
+Ok phone nation want.
+Particularly visit out.
+President fire hand item.
+New property go example mention sense.
+Lot human reveal friend window gas.
+Able culture address soon.
