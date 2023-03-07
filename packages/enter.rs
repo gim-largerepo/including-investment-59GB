@@ -1,13 +1,8 @@
-Run recognize or through some.
-Through stand wonder service get example.
-Up walk then carry piece.
-Music significant event fill.
-Many election sing agency similar unit.
-Ahead what doctor dog charge at.
-Sea school lose.
-Turn arrive sister evening else.
-Day girl at make.
-Throughout hospital he account reach.
-Father why number treat song still country.
-Need pretty cut knowledge mind.
-Task product southern open.
+Some century woman accept.
+National central age before our teach speech.
+Although try list visit impact interest.
+Reality else design camera tough.
+Plan itself land prove rich increase.
+Blood choice actually tonight.
+Arm their product usually claim political.
+Idea tend politics food throughout.
