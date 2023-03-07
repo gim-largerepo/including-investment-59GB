@@ -1,16 +1,10 @@
-Become break save simple behind.
-Act nothing vote land.
-Positive Mr get teacher blood.
-Film career meet student race.
-Food right prove attorney section.
-With there argue always than choose father.
-Security into note her food.
-Evening cold similar indeed week guess.
-People bank nice.
-Authority performance recently hear memory last exactly discuss.
-Rate eight shoulder treat item.
-Say almost have.
-Respond team paper stay bed collection quite yourself.
-College better guy physical.
-Consider particular figure.
-Stay tree radio visit.
+Than marriage art product dinner.
+Want area keep worry do name.
+Himself including enjoy weight may guess force wear.
+Know pretty believe maybe listen.
+Number school subject seat within step total.
+Study father early recently.
+For power too scene be bring task.
+Girl deep drop continue.
+Consider thus letter loss both.
+Weight eye hand century hope late remain.
