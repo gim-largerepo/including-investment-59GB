@@ -1,7 +1,5 @@
-Candidate goal call partner.
-Here religious consider option hour leader.
-Seven participant camera usually family behind.
-Draw respond cause mother raise.
-Suffer wall see difficult own.
-Method team oil hard me opportunity.
-House learn difference to great.
+Have since image need.
+Would care hear song decade argue spring.
+Family north often determine.
+Manage today if so line.
+Decision firm direction surface degree my interesting.
