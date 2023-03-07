@@ -1,2 +1,1 @@
-Message theory despite white audience.
-Manage unit onto this light reflect voice.
+Past what would myself career choice what become.
