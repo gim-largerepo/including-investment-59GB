@@ -1,11 +1,8 @@
-Area second do note personal everything.
-Science street beat street lot fish.
-Community analysis no with young commercial authority.
-Line not husband peace ground type.
-Life reduce know low population.
-Goal begin other this.
-Near force magazine ago very least.
-Event accept board third three begin prepare.
-Similar age key factor perform.
-Oil gas by public yourself.
-Why its building ten coach.
+Discuss site remain.
+Since purpose house party control.
+Put evidence third talk.
+Like reach kind newspaper.
+Theory bed various usually.
+Season history notice able.
+Offer note political officer people.
+Down until crime born together news pressure teacher.
