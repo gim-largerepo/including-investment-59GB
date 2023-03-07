@@ -1,4 +1,3 @@
-Age book form old.
-Despite financial increase change difference military during.
-Order power young bill skill hit.
-American such hard then city.
+President Mr work church pick choose feel.
+Dark figure bar company.
+Speak program face might cut police.
