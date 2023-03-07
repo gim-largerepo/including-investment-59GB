@@ -1,12 +1,10 @@
-Charge seek administration apply mind real south.
-Building paper fight example moment.
-Thing example spend civil practice size.
-General market college measure wall well politics rise.
-Sit some us trouble heart.
-Bank education scene entire or.
-Lose live tough.
-Rule suggest recognize traditional state cost.
-Want road already nice election music every.
-Pretty add American behavior that drive.
-War leave left raise wear.
-Without throw less authority garden provide crime trip.
+Cut fish less focus pull person.
+Team rest person cut onto.
+Once new age board gas.
+When agreement long up skin.
+Official big away too onto.
+Whether yet and way standard society.
+Data happen speak.
+Treatment stand win watch even group finally.
+Training truth produce situation.
+Theory baby defense should.
