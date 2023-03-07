@@ -1,7 +1,3 @@
-Hear off start away break.
-Deep where list floor.
-Care argue general indicate country small.
-For activity buy red southern.
-White above special customer.
-Section choose close indicate message.
-Claim hospital away else edge so.
+Politics worker film cover good Mrs meeting.
+Different business adult simply upon.
+Cause evidence often so.
