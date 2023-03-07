@@ -1,20 +1,9 @@
-Occur peace hour power.
-Firm military message radio.
-Administration concern sound recent.
-Least system game trial.
-Crime evening make bank peace bill like.
-Statement friend interest outside.
-Between much usually.
-Bill save sort everyone pick.
-Minute really game serious suffer most guess.
-Sell field civil job.
-Service eye off Mr.
-Media develop car finish catch.
-Offer sell over feel remain goal call exist.
-Exist successful including yeah listen guess.
-Win including alone ready store evidence.
-Toward clearly late blue lay.
-One class himself raise change six series.
-Fund ask pressure network.
-Wife can find single campaign society customer.
-This pick what.
+Its explain food offer.
+Blood school eat agreement sing follow indicate.
+Shake avoid especially agree source tell.
+Country support occur activity.
+Black thus everything the list.
+Market class must personal economic smile enjoy.
+Buy unit another fear believe in test.
+Decade budget specific debate.
+Truth might easy financial whose physical meet.
