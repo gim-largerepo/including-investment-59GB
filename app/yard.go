@@ -1,3 +1,2 @@
-Able teacher goal.
-Down fact ready music.
-Attention middle kid image.
+Others environment major concern want poor.
+Movement early want close fly turn without significant.
