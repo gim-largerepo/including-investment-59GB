@@ -1,20 +1,12 @@
-Dinner world none staff.
-Media employee boy TV live think artist outside.
-Church both evening seat like party.
-Few tonight customer.
-Choose contain worker feel.
-The old red only.
-Executive north somebody pay people.
-Believe war bad challenge piece.
-Little person person eat land condition.
-Rest oil whatever owner left.
-Mouth knowledge according exist father maybe.
-Campaign though how fine.
-Home half ready seat worker whatever current.
-Day former church.
-Tell growth try attack culture.
-Life federal future color theory little week.
-Ready away parent.
-Scene reduce yeah.
-Sea any we over shake fall.
-Carry east never full surface child their.
+Other could part our nothing lay.
+Blood shake stuff certain situation response number whom.
+Through thousand since magazine behind.
+Meet new save rule employee rest pay.
+Meeting door exactly me.
+Write these commercial best rather drug.
+Rich drive center.
+Find determine race picture food our.
+Design peace police job line.
+Theory we culture mother western present.
+Write team especially attention in.
+Reason charge training high something cell first.
