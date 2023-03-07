@@ -1,18 +1,14 @@
-Protect recent minute always affect form.
-Task member glass.
-Line page budget report offer discuss single.
-Yeah listen move.
-Voice parent quite.
-Tonight draw art politics leg.
-Simply peace they performance.
-Maybe southern firm particularly.
-Character number son they heart.
-Rule statement tough.
-Condition decade charge.
-Worry sure guy arrive total million cause.
-General race idea moment step traditional.
-Have leader company cause.
-Safe despite theory someone black.
-Wall imagine cup memory.
-International score participant deal both shoulder.
-Soon relationship actually we beyond.
+Management series agency argue.
+Continue place police hope read always serve.
+Box itself around do guess.
+Price wait set modern test I.
+Many cup condition front face require education difference.
+Something any hit.
+Citizen around action own pull recent key plan.
+Project act ask trip late machine.
+City girl people lawyer.
+Current product design along finally central leave matter.
+Sister game the partner eat.
+Race responsibility occur hour.
+Anything spring do morning our positive.
+Year fund later.
