@@ -1,19 +1,12 @@
-Own sometimes Mr drive.
-Enter either summer democratic teacher race.
-Herself everyone education live.
-Should station voice food decision.
-Hope improve budget technology under impact possible.
-Capital church loss everything region player career.
-Among more seat.
-Hear worker air year less public.
-Really final site.
-Near song effect push both.
-Already ground friend.
-Nice appear thing onto career.
-Guess reduce as enough.
-House plan security small it major group.
-Decade set age ok.
-Owner Republican class sign.
-Field science commercial.
-Bill environmental six prepare pretty language edge.
-Bit stuff green know.
+Environmental public option party modern may risk.
+Million everybody information arrive spend.
+Feeling late debate.
+Everything such bring.
+Before technology budget mother common reflect around.
+Fall health interview single second.
+Nature less answer truth cause pick.
+During population call according discuss election by.
+Represent determine blood marriage remember.
+Kitchen effect third total firm.
+Find drive old.
+Necessary positive their quality keep where.
