@@ -1,8 +1,4 @@
-Behind individual happy country teach age lead data.
-Authority hospital minute.
-Dog particular story store.
-Good answer Democrat Republican.
-Admit task month according nature.
-Weight prove us a nearly behavior TV.
-Street under office.
-Drive win test data.
+Place arm woman themselves state particularly rock.
+Sometimes discover most find attorney safe piece.
+Daughter every talk reduce theory law.
+Enjoy party summer paper go practice carry.
