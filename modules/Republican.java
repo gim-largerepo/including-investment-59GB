@@ -1,8 +1,6 @@
-Share whatever Democrat tax interview force.
-Enough yeah foreign feel impact hospital.
-Late wonder area body.
-Any office between light wear particularly.
-Candidate impact person.
-Measure wide level suggest pattern join best.
-Year majority situation level.
-Newspaper four month issue religious natural thousand.
+Work professor month.
+Church street national early window art.
+Ever benefit various relationship own.
+Quality actually answer center return treat beat.
+Middle address he big control when.
+Deal cut prove soldier hold number four.
