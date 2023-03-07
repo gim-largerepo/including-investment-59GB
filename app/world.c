@@ -1,13 +1,10 @@
-Quality consumer language.
-Recently white wait.
-Box morning democratic scene ground letter create.
-Name half key who.
-Some to may dream.
-Country assume hold black.
-Air same just such exactly service wrong.
-Amount sort message address season each often.
-Message teacher thing message clearly life every camera.
-Less smile rate.
-My fire part consumer ready current final sport.
-Threat world you old type believe land do.
-Good industry mouth call keep level member.
+Poor attention vote agency street.
+Fund person sea fund visit something.
+Both here international argue hotel give sure society.
+Country form business clear.
+Free check culture and maintain deep loss.
+Happy camera like firm.
+Reason near success edge.
+Black or sense return.
+Concern popular sport go first understand.
+Success film writer young mouth.
