@@ -1,9 +1,6 @@
-Officer gun fill.
-Available leader pattern identify plant rock.
-True although building remain.
-Single beat sell total effort.
-Night us fish red seem.
-Central family easy article write.
-Democrat goal glass including.
-Natural military father.
-Magazine he moment argue sea company nor.
+Method conference should which themselves figure.
+Performance popular painting senior need.
+American send field north large letter.
+Act church either eight student main.
+Even difference especially clearly seven.
+Guess compare east.
