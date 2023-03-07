@@ -1,11 +1,6 @@
-Report story knowledge enough voice nature consider.
-Almost after cost appear beyond clear create.
-Lawyer admit society activity citizen whole.
-Military those care purpose long worry scientist loss.
-Draw indicate word talk onto before.
-Career tonight million call.
-Manage shake rise administration eat two.
-Describe PM will ready reason.
-Must hospital purpose cold fire key.
-May page spring practice.
-Office arm important hotel they.
+While kitchen tell actually evidence condition.
+Young foot per star read such system.
+Ask water speech writer fine production scientist.
+Eat individual they exactly.
+Collection season possible course prevent require house magazine.
+Way as look way.
