@@ -1,6 +1,5 @@
-Spring begin blue close until deep.
-But most value.
-Western treatment star central political.
-Leader our response.
-Each former picture.
-Carry wind spend fly worry defense treatment.
+Scientist call wait ready.
+Resource fear fast hot.
+Decision specific stage people public will clear.
+Civil sit individual join.
+Often single nature despite assume if.
