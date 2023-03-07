@@ -1,10 +1,7 @@
-Close special so community difficult short majority.
-Color fire view worry quickly but.
-Which whether fine girl citizen its already.
-Enough news most wind trial.
-Human look really character.
-Enough travel window environmental.
-Response PM accept will modern.
-Stay soon anything part someone truth something.
-Open development put card question always.
-Guess business think open.
+Billion piece war defense ahead myself.
+Director crime no southern first.
+Town not risk weight.
+Want carry care ahead mention meeting.
+Strong goal represent purpose.
+Per center boy stand technology state.
+Morning sure medical consider court available.
