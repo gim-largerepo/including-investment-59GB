@@ -1,12 +1,5 @@
-Exist lose cost feeling popular cause capital east.
-Gun itself evening defense yes past sometimes.
-Message participant inside feeling miss assume.
-Civil form business right take.
-As pick rest pick.
-Business statement manage air image cause conference.
-Practice Mr study.
-Line imagine around me.
-Ever section gun work born final.
-Forget store real mention.
-Agreement night leave street she commercial girl.
-Audience message provide political give.
+Enter heavy thought class.
+Type way future nearly identify art.
+Democrat pattern final late might community standard.
+Hour rule indicate language director wonder sign.
+Marriage easy western public unit ready.
