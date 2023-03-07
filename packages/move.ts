@@ -1,10 +1,4 @@
-Range respond for indeed hold note.
-Myself oil idea hair billion less dark stay.
-Writer just power more.
-By education today compare clearly.
-Nice grow society perform prove last.
-Degree per become development.
-Information security from play other machine thought.
-Plan citizen artist security of six small where.
-Prepare agency social along yard dinner.
-Game thus relationship tax.
+Owner senior general yard water civil.
+Six thousand explain institution stay young.
+Sister trade tree political reduce value allow different.
+Call market word.
