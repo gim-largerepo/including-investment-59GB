@@ -1,0 +1,1 @@
+Affect tell smile key direction wall someone hope.
