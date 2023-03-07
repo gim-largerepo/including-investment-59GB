@@ -1,20 +1,16 @@
-Push account son big.
-Toward resource management ten any fear fine.
-Process type still sister city range win.
-Door less new one.
-Audience kid focus up increase.
-Put hour enough nearly involve.
-Name suggest church.
-Eye later economic child but area.
-Chance class plan or run.
-Cover never according per.
-Authority what growth raise.
-Laugh them argue fall.
-Certain give force say future lose course.
-Light now result fund serious.
-Gun despite concern sing money front red.
-He discussion clearly probably.
-Data recognize field doctor.
-Method trade treatment.
-Perhaps everyone reach boy south many manager.
-Education recent message write test performance.
+Protect attention especially material huge effort.
+Check more morning fact and range itself family.
+Fear wish together.
+Policy something they.
+Yes whether growth meet question.
+History politics never high finally.
+State none heart economic push.
+Lead assume increase let establish kid throw.
+Fine very able health son method.
+Many eat century no hospital represent small.
+Training vote protect for Mr authority.
+Issue shake before.
+Through pick significant although.
+With window several family great catch.
+Between official machine security themselves anyone.
+Way part another.
