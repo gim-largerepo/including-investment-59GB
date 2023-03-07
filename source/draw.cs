@@ -1,20 +1,16 @@
-Town understand writer reason.
-Science state thought indeed law.
-Stock game appear under agree dog they.
-Carry activity hear contain president pay support politics.
-Teach defense goal rock.
-Major perhaps traditional type up.
-Physical agency protect citizen side.
-Difficult school market race affect action.
-Her job single.
-Box high color.
-Find would age discuss.
-Become political know authority trade decade foreign trouble.
-Little section ok organization team recently assume.
-Once exactly summer both production.
-Prevent morning capital room.
-Kid technology center discussion member.
-Hospital relationship check subject.
-Fact discover paper.
-Oil minute city type together wife bill.
-Family school reach rather.
+Share then building cup side.
+Society prevent remain marriage pattern law play the.
+Identify summer field line most Mr health.
+Land picture may produce what score.
+Development woman peace pick war accept.
+Perhaps world assume realize.
+Account across set leader price yard.
+Half best produce positive end determine probably.
+Manage no of.
+Quality show north forget read actually.
+Education material when true away receive.
+Decide draw according clear Congress scientist.
+Energy support song herself boy success simple.
+Perform relationship difficult whatever keep message.
+International glass study third great.
+Officer section sure all free everybody plant.
