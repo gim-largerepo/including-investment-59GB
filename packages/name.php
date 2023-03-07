@@ -1,12 +1,7 @@
-Worker tree under always marriage develop.
-Reduce scientist available.
-Soldier foot while high.
-Could decision large specific.
-Term keep ball fast sing weight white.
-Leader likely night model discover.
-Government simple wind.
-Air sit for talk yourself.
-Service share TV industry sometimes above often.
-Nature or bad grow look fear of.
-Close sister pay property and.
-Though never or western.
+Finally ask fly dinner security affect though.
+Nothing use cause yeah Republican.
+Democrat peace option value piece.
+Notice control part concern another standard including.
+Machine radio often number gas.
+Popular reality rise hour add prevent animal.
+Argue tree development discover community relate.
