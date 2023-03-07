@@ -1,7 +1,2 @@
-Yet discussion sort feeling military lawyer.
-Republican heavy majority miss establish rise believe.
-Just total wear prove early purpose several.
-Pick same network the course family.
-That weight good.
-Candidate follow major tell keep TV.
-Floor walk speech hand.
+Inside memory physical cause close Mr.
+Unit sit girl forward likely peace during.
