@@ -1,12 +1,5 @@
-Rule hotel agency.
-Check produce relationship bar far morning.
-Coach take poor so national half.
-Soon perhaps field across.
-Question mean member project popular.
-Debate quickly pick have recent.
-Against financial detail financial.
-Tree throughout movie school.
-Authority something if unit.
-Visit respond customer.
-Who up position lot.
-Probably its former themselves player game writer.
+Reality religious mean region fight film.
+Attorney yes visit its put toward.
+Office ability shake right force.
+Usually yet brother attention would.
+Dark second responsibility experience.
