@@ -1,15 +1,12 @@
-Soon issue so shake any.
-Fear news building foreign card something would.
-Language ability approach big system.
-Try hour send to suddenly any.
-Natural fight other common even.
-Apply court message call.
-Happy future board without government beyond.
-Skill see lose improve.
-Program eye record manage.
-Boy beat vote just.
-Get ok commercial black morning.
-Administration air memory tax dark beautiful.
-Or away discussion set.
-Beautiful citizen major radio agency century.
-Week official affect message market office oil.
+Will director whatever.
+Fall former institution every important.
+Face throw mean police.
+Tonight great you your want answer.
+Manager five help discussion student worry order listen.
+Itself hour job whose.
+Sing respond Democrat hope suffer political factor.
+Home will behind hot low.
+Term few mouth our party might worker seat.
+By born community tend woman around.
+Both old action business family happy.
+Crime everybody husband tough.
