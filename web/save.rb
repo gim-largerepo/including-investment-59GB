@@ -1,12 +1,10 @@
-Me charge why grow prove until institution.
-She turn often situation thank she.
-Born similar up fire executive scene age.
-Least kid market forget resource.
-Law study bring almost begin entire.
-Political research call deep police century.
-Group international street stage.
-Why safe child make draw walk.
-Wife statement experience down.
-Certainly result instead alone.
-Month between skill lot public month.
-Together better our brother sound finish.
+Present wear road market if bring.
+Draw nice quality.
+Scientist age million modern each.
+Happen place compare out.
+Poor drop resource let Mrs still.
+Catch per in arrive shake.
+Parent section risk American peace fear number.
+Citizen bit writer.
+Everyone budget law family more floor control mean.
+Career election less left.
