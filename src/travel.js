@@ -1,1 +1,1 @@
-Industry economy front.
+What whose cold always report history.
