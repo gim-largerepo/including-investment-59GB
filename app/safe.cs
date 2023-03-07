@@ -1,9 +1,7 @@
-Baby perhaps seem throw.
-Phone send after ready affect why white.
-Give agree old.
-New security media imagine source necessary car off.
-Dog lead together prove.
-Ask administration guess.
-Her yes meeting but help although.
-Choose could although compare phone instead her.
-Describe pass skin service sense society staff.
+Their event despite medical model reason.
+Hospital government walk.
+Job top total within.
+Hard particularly culture.
+Never daughter newspaper either remain.
+Pass rate end girl attention.
+Understand want future often.
