@@ -1,2 +1,1 @@
-Condition work family probably wife trouble near.
-Likely station floor baby about until.
+American fast crime partner these risk account miss.
