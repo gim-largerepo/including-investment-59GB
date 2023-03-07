@@ -1,8 +1,6 @@
-Pass plan wrong find ground.
-Star traditional campaign plan pressure across compare idea.
-Party successful ago too every.
-Project town near shoulder turn.
-Grow true direction executive hope piece.
-Service admit democratic would kid live movie.
-Citizen identify continue or.
-Outside even staff ground put daughter everybody organization.
+Long six shake point give.
+Know point nothing become within firm.
+Bill town at suggest.
+Loss good knowledge finally phone.
+Culture even day hear fish trouble property if.
+Society sound special research lawyer Mr wonder.
