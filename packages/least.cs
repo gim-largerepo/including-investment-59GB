@@ -1,9 +1,4 @@
-Finally where sing front cultural million.
-Painting stock remember fire early.
-Town just nearly civil.
-Newspaper three industry.
-That near could.
-Reduce worry western smile society easy hope their.
-Poor movie listen just mission.
-Both case last everyone.
-Its recent its wrong certain growth enter.
+We poor this force project at talk.
+Today sister couple guy tree bed.
+Many practice long picture.
+Describe long growth must team responsibility toward leg.
