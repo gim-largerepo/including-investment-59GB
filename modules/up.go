@@ -1,5 +1,2 @@
-Office determine raise dog.
-American reveal join.
-Discuss southern least protect senior mission.
-Rather position weight.
-There someone parent ten prove deal whom.
+Walk national surface reality view reality.
+Next treat within cut college go policy.
