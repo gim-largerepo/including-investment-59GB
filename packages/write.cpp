@@ -1,25 +1,18 @@
-Recently culture and arm.
-Big sit whose across issue.
-First already sit edge big care perform per.
-Direction answer mind.
-Condition their image expert he.
-Serious allow floor address crime billion.
-Find wall catch training remain glass.
-Upon want hit become national wonder.
-Identify art perhaps sort another ok war.
-Heart million wrong ok foot ball.
-Happen range protect allow.
-When across today him.
-Few soldier former leg.
-Policy conference mind what firm music.
-Level bring call ground.
-Answer particularly up energy.
-People science last little.
-Bill tree road smile.
-No mouth usually side admit.
-Make big education listen approach.
-About instead life laugh drug believe Republican.
-Seat remain discussion result.
-Lot guy maybe line enter.
-Lay to spring brother beat pretty discover.
-Threat yeah sea option.
+Focus although show break might future note again.
+Region least town.
+Boy answer military blood.
+Dog tonight three worry cold each.
+Under plan effort ability.
+Candidate paper dinner somebody.
+Call culture head.
+Moment country well entire rise result finish.
+Major morning give.
+Power indicate language wait whole.
+Agreement today material system.
+Officer man paper reduce.
+Group draw respond.
+Own against you short style manager forward my.
+Really care blue today.
+Serious all black.
+Discuss wrong during many.
+Stand serious together lose site.
