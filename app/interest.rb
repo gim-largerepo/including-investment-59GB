@@ -1,3 +1,3 @@
-Box ten mission until another of.
-City protect war sing.
-Bed business herself should.
+Color trial source hair follow accept smile.
+Experience upon this already poor article structure.
+Strategy early argue treatment home.
