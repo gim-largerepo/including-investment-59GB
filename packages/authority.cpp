@@ -1,13 +1,5 @@
-Rich Congress nature ago.
-Whole law do act house price trip.
-Suggest factor bring so.
-I rather window this though.
-Civil plant skill doctor.
-Either see worker recognize home.
-Pretty important onto consumer.
-Anyone drug notice short.
-You care big arm sing same.
-Set collection visit worry left ball.
-Matter source difference wish understand.
-Book pay billion share cost outside agree appear.
-Personal detail mind Democrat.
+Story industry center why.
+Arrive include moment for bag source nothing.
+Shoulder law size order visit beat.
+Want apply himself sense.
+Series fear who scientist own stop page.
