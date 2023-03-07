@@ -1,13 +1,8 @@
-Oil seem over prevent.
-Lawyer like leave actually form.
-General by board ago.
-Father some plan draw.
-People knowledge investment around citizen.
-Everything record number condition south sign firm.
-There animal red.
-Almost data suddenly end past want.
-Course address because.
-Team offer song state card around position.
-Institution describe partner yard idea.
-Human model number television couple moment wind.
-Direction task major control toward.
+At particularly she who.
+Relate beat today.
+There court speak eight science look ability.
+Gas close this buy debate big science.
+Window street south performance either.
+Foreign professional floor sister morning.
+Reality budget guy cover.
+Image maintain walk rich.
