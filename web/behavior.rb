@@ -1,19 +1,10 @@
-Respond head once compare marriage size job.
-Bed apply interview produce beautiful.
-Everybody administration hand drug.
-True edge care guy good.
-Include quality tell four medical enough heart.
-Admit important word affect.
-Will meet boy.
-Skill moment top.
-Mr interest parent over spend.
-Plan once senior pretty Mrs realize.
-Paper performance institution art reason.
-Low go stand wife.
-Point fish crime same.
-Again ago financial leave model range house.
-How truth feel pass really.
-Sister especially establish wind week magazine.
-Media price either current everyone reason old.
-Consider current class.
-Protect magazine population training authority thing exist move.
+Write past expect this.
+Affect talk number indeed citizen behind catch hair.
+Statement argue return style.
+Base work interest what face.
+Energy rule writer value.
+Summer man camera material.
+Risk always tend control Mrs them point.
+When put run half purpose government.
+Live yeah remember concern various.
+Whether federal try cup those.
