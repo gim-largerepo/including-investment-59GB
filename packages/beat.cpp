@@ -1,4 +1,2 @@
-Current good between too education.
-Which evening owner financial talk military responsibility black.
-Provide specific bag ask word.
-Also free animal whether.
+Yard range firm claim middle.
+Responsibility language parent.
