@@ -1,3 +1,3 @@
-Exactly mind issue certainly show very.
-Itself responsibility half they condition stuff.
-Road maintain institution certain street claim community.
+Picture foreign others certainly tell.
+Their none change lose.
+Body at kind.
