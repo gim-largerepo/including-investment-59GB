@@ -1,1 +1,1 @@
-Chance possible budget spend decide activity foot window.
+Plant ground audience when everything experience foreign media.
