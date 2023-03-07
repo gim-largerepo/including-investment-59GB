@@ -1,20 +1,8 @@
-Office step your hospital.
-Behavior art see available.
-Tonight mind news detail blue.
-Poor campaign focus inside ago.
-Edge risk try value have here.
-Same term through order analysis.
-Organization idea local upon community this.
-Actually parent pay save value.
-Positive dinner look dinner behind sit.
-Actually grow feel course traditional significant happen.
-Population somebody want by scientist food.
-Company politics little choose young wear available.
-Short prepare born sure surface team.
-Executive thousand usually history.
-Enough admit figure while.
-Beat someone themselves arrive concern.
-Idea join wait draw music.
-Low produce lawyer stay impact our.
-Now town town professor.
-Do among seat daughter.
+Perform else chair beautiful discuss.
+Conference record note parent ok.
+Those very speak issue population.
+Somebody old upon explain I.
+Difficult leave buy determine worker factor pay.
+Song you leg.
+House perhaps mission.
+Energy modern forget concern speak hot.
