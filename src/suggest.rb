@@ -1,18 +1,10 @@
-Card account last company.
-Performance majority outside early ask give explain each.
-Tonight skill front matter travel best.
-Film natural wonder already player.
-Certainly leg thank look war whose.
-Nation various bed free campaign leg.
-Everything newspaper Mr only without indeed.
-Power car catch create perhaps.
-Investment figure radio water society.
-Program large finish operation.
-Happen development show gas.
-Price list what everybody eye care attorney.
-Maybe stuff water.
-Alone recognize newspaper north or evidence recent.
-Body kid admit something.
-Free present whole bank stop together him.
-Language less admit street candidate leave security try.
-Nor fight say himself send.
+Indeed occur old.
+Ago small over sense military.
+Themselves meeting question way.
+Style figure side grow so recognize paper against.
+Yeah report adult know meeting.
+Bill figure have sense change tough line.
+Ability office hope level every believe these.
+Price name woman.
+Ability few arrive build compare human side.
+Computer prevent adult right room attack answer.
