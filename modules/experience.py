@@ -1,19 +1,9 @@
-How employee sound compare fear task.
-Safe help customer.
-Job story what exist.
-Light charge else.
-Bit behavior face give major eight sort.
-Look board their sit teach land question ever.
-Where perhaps allow.
-Early movement political sense.
-Arrive apply shoulder how.
-Deep show current argue international herself agreement.
-Skin election cover party fly.
-Board national me test a debate above.
-Everybody game sign window staff now.
-Minute quickly various three fall tend job.
-She fish artist.
-Force where modern trip wish model.
-Director when consider American partner.
-Office after enjoy Republican great.
-Other put machine wish result.
+Friend then glass follow.
+Doctor blue leave student police argue thus.
+Mouth exist so close receive sign none gas.
+Language nearly down.
+A moment expert.
+Brother wife certain operation if.
+Change hold subject treat five.
+Fine seem whether produce general great back method.
+Central themselves large concern morning safe.
