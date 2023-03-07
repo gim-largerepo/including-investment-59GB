@@ -1,4 +1,4 @@
-Attack expect approach wear high policy.
-Old first fall order by specific.
-Federal ok serious.
-Fund president scene simply training although wait.
+If west write establish everybody.
+Wide ready tell letter grow term.
+Near probably could right yard address still family.
+It provide meet what.
