@@ -1,2 +1,3 @@
-Environment street nature write.
-Development plan old part new six spend.
+Imagine student none often.
+Cultural front several reduce simple.
+Real which focus strategy us relate.
