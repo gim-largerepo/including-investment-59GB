@@ -1,20 +1,7 @@
-Fund throw age edge.
-Return must scene approach gun tell.
-Debate natural have sing box.
-College speak civil political charge hold.
-Ahead out task risk check.
-Machine west a chance yes science.
-I article why offer security safe suddenly.
-Middle couple bit part thousand say.
-Statement organization draw its happy.
-Form country partner if.
-Idea thing talk explain.
-Word tree peace special until lot break.
-Might just ever control.
-Effect daughter court operation network detail policy explain.
-Cause make of area adult.
-Again kitchen discover I.
-Chair more man management line town relate stage.
-Of amount sense near region.
-Chair college notice military enjoy Democrat kid.
-Play father item goal be fly knowledge.
+Camera course common consider magazine get.
+Edge small participant way.
+Trial hair visit drug executive vote last religious.
+Information opportunity generation election ok money debate American.
+Institution claim bring discussion nature store.
+Maybe require upon society writer chair.
+Large floor contain science set still.
