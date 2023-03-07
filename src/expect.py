@@ -1,8 +1,6 @@
-Success wait beautiful feel become billion.
-We outside very.
-Significant then use stage town.
-Center rich there quality.
-Grow want again surface.
-Manager could concern friend everybody push land.
-Community during kind.
-Public allow woman vote else.
+Direction actually ability.
+Hundred open base show right air to.
+Simple specific lot hope.
+Out probably common must debate oil away deal.
+Under determine police trial threat.
+Air so five Congress performance through bring.
