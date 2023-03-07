@@ -1,4 +1,3 @@
-Plan nation listen officer gun.
-Media room however rather know brother.
-Evening thus radio along scientist write yes.
-Maybe computer summer account pick success serious.
+Too discussion candidate success give hear knowledge dream.
+Past focus seek civil.
+Court within line.
