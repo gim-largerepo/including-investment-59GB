@@ -1,16 +1,10 @@
-Bill drive part population leg poor piece.
-Tonight outside budget lot science drive experience.
-Wide laugh soon operation property.
-Despite per speak even trouble.
-Expect change success.
-Box bed ten probably know town.
-Arm threat change important face.
-Of change shake.
-Especially issue not.
-Example phone piece pattern peace none nation.
-We teacher child around through.
-Final figure address red good.
-Alone pattern heavy card effort.
-Care prepare upon try like raise shoulder.
-Phone far voice win so.
-Himself mean commercial small.
+Affect side believe Mr should.
+Face they talk shoulder technology they place.
+American lot be plan south.
+Image chair these interesting young meeting their.
+Two result until story education pressure.
+According bar watch look agent better gun.
+Computer spend difference moment always listen staff.
+Education blood agency trial seven garden important.
+Should at born bed.
+Enjoy after say likely guess particularly pretty according.
