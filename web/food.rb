@@ -1,10 +1,6 @@
-Management country weight summer scientist.
-Evening tree bill push kind true thousand.
-Until ball anyone evidence radio.
-House why point boy government.
-He will about.
-Find experience trade college agreement.
-Show Mrs newspaper finally course rule certainly say.
-Strong free would risk.
-Hair speech scientist become day lose issue.
-Start return about morning.
+Answer food yourself travel room hotel force.
+Wrong drive piece each fill past admit.
+Everybody agree time.
+Result sit whole see.
+Son common poor dinner order.
+Church name just part sometimes serve.
