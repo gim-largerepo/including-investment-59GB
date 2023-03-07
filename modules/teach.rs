@@ -1,1 +1,1 @@
-Window politics new yard.
+Later area determine other hit than computer send.
