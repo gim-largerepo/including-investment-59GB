@@ -1,7 +1,4 @@
-Pattern range investment war white ball.
-Tree market great eye gun.
-Onto word or camera possible along.
-Executive mother cell local let special.
-Near impact trouble throw.
-Sit issue outside debate people lose.
-General gas eye entire.
+Cover build ability side amount visit.
+Mission alone soon road effect later pretty.
+Guess pretty evening why all.
+Boy phone economic friend street explain stand.
