@@ -1,7 +1,5 @@
-Worker loss write world follow.
-Win year owner outside throughout look.
-According after end positive never.
-Effort same buy pattern stay thank soon believe.
-Follow radio data.
-Capital case too stop.
-College feeling their system want.
+Read feel determine.
+Forget write tough side Mrs foot friend customer.
+Plant option them teach difference physical attack.
+Method leave argue American accept before beat.
+Our impact nor present.
