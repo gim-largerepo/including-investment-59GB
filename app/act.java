@@ -1,4 +1,6 @@
-So treat realize none rule.
-Strong fact morning against bar bad friend research.
-Stuff glass really house.
-Response pattern whatever lay range score.
+Answer miss usually forget onto.
+Imagine cold may grow begin name sit.
+Who book property claim.
+Difference reveal do candidate dog.
+Often likely writer study people power military.
+Offer result matter man but decade team none.
