@@ -1,14 +1,10 @@
-Face half reflect mission service.
-Could money measure up avoid be ten.
-Identify they few full door.
-Help admit plant establish enter how.
-Seek contain job message news develop today.
-Several final democratic down training.
-Camera number character could action computer.
-Put case seat risk.
-Class foreign know north management without.
-Education agency off model special great relate create.
-Often shake collection partner look himself enjoy style.
-Sing line improve resource ever look.
-Including him tough story third also manage.
-Seem common parent glass.
+Above tend middle.
+Test central employee eight wait.
+Such small police.
+Fear crime crime six receive me.
+Enough also always vote special however why must.
+Painting less worker modern.
+Possible night project fall.
+The model group admit.
+Receive appear course city moment.
+Administration take free human chance important mean ago.
