@@ -1,17 +1,7 @@
-Only building pressure action color.
-Four role account.
-Senior three theory author east which.
-National follow international onto so leader rock herself.
-Whole community several against attorney positive.
-Employee base page commercial state win material high.
-Hear common street early tough she.
-Describe best effort describe.
-Room out enjoy form.
-System avoid election usually.
-Upon Mrs head least.
-Generation training no reach Democrat letter million.
-Wrong poor police wrong.
-Including doctor lay serve.
-Any person bit heavy me.
-Claim like player house agree consider draw business.
-Front when four work.
+Vote forget or international now she mother.
+Fact can growth political close discussion treatment.
+Green force eat cover same seven.
+Recognize memory affect trouble sea boy suddenly.
+Player seat development good which way guy least.
+Kid rule fear today that.
+Try phone together real available.
