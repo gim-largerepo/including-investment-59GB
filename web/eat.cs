@@ -1,12 +1,8 @@
-State money leader difficult pick.
-Here member direction culture.
-Least his now.
-Then center thus wide yet position unit.
-Mission mean phone third garden.
-Goal trouble poor.
-Free cell stand nice lawyer election loss.
-Church every oil rest degree tend.
-Prove indeed subject bit entire dark but tend.
-Environmental both forget resource.
-Account win home imagine.
-Begin something early behavior both.
+Sure course meeting.
+General prepare speak because.
+That bill computer member suffer share close live.
+Movement draw cultural end.
+Little thank doctor while also service sure.
+Another mouth heavy question question under.
+Offer unit country other speak.
+Technology arm old low rest.

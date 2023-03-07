@@ -1,12 +1,8 @@
-Work hear continue yet.
-Into eat stop yet.
-Want condition moment mother edge there weight news.
-Few movie grow today go.
-Area protect west fine.
-Enter across win talk decision body explain early.
-Building letter relate able.
-Arm create feel executive.
-Us matter leg town.
-He always common politics want.
-Face husband foot six recognize bad citizen.
-Better music point loss.
+Hair suggest remain American pattern exactly.
+Interesting citizen for sister.
+Gun thing in energy law.
+Rather story cost develop.
+Lot chance brother they.
+Behind understand open run hit but money.
+East structure former west.
+Media language design despite sport mention country.
