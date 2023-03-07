@@ -1,0 +1,1 @@
+Various close investment plant near risk.
