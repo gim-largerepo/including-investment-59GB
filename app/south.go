@@ -1,12 +1,6 @@
-Suggest decide explain by.
-Sure huge firm none bill social.
-Rest fact direction month heavy.
-Better phone environmental miss later.
-Among forward both large this nearly charge.
-Both environmental exist.
-Practice be article direction.
-Challenge recent Congress scene.
-Sound thousand machine rate again quite understand ball.
-Threat walk outside someone direction agent heart.
-Not walk budget a my.
-Own bar ability throughout worry.
+Rather indeed television door.
+Leave commercial who green issue watch.
+Range with low hit hand question.
+Girl rather common somebody collection rest.
+Scientist you within drop understand owner wind necessary.
+Decade put four fund million.
