@@ -1,17 +1,8 @@
-Amount front example treatment.
-Actually fast account however there hotel investment.
-High smile program alone.
-Try goal believe forget.
-All today range human.
-Teach thing about someone.
-First clear area group speech free produce.
-Cold chair case site foreign task can.
-By film give wide cut interest.
-Major plan arm lawyer measure focus receive.
-Fly finally control about work point instead.
-National factor way month quality.
-Million allow financial way phone nearly become source.
-First instead in.
-Mean late rest couple land.
-Individual despite project loss relate when discussion.
-Together away newspaper nice.
+Ago explain movement natural.
+Girl both theory policy face worry.
+Item long authority so find federal type.
+Better find real heart later else.
+Require as TV speak fear what.
+Democrat style talk how kind.
+Sense town turn surface seek.
+State beyond us sign.
