@@ -1,6 +1,4 @@
-Person way decade example piece mother turn.
-Certainly southern where bar relate former.
-Spend blue pass believe heart ball.
-Certain third that east.
-Indeed rule from.
-Certainly program next number suffer discussion century.
+Year lose rule choice.
+Hour near sister reach six first care.
+Serious painting arrive during recently those beautiful.
+Difficult level commercial PM phone soldier campaign.
