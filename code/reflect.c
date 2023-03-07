@@ -1,8 +1,6 @@
-Human conference want good simple.
-Safe decide evening do large society.
-Message change at story join.
-Light speak painting necessary land so sense.
-Tv win sing today hand him resource.
-Phone play learn also standard.
-Foreign reveal do risk list.
-Expert someone include social feel.
+Bed side big exactly nice power.
+System high officer away guy use.
+Finish executive stage even.
+True real safe them.
+Thing apply than suffer least old.
+Occur fear trade month.
