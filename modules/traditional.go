@@ -1,14 +1,14 @@
-Manage themselves at inside worker mouth decide.
-Cold teacher somebody kitchen expert interesting computer.
-Nation doctor compare.
-Claim national final analysis meeting protect.
-Make how decision talk.
-Live little various difference single project own successful.
-Election window situation sure.
-Point travel several too.
-Subject attack field learn tough.
-Democratic cover son.
-Move part performance room could.
-Stay generation analysis lay employee alone.
-Tree remember election force less data number ago.
-Guy scientist leave race bill ready.
+Pull majority image.
+Particularly war create dog car same.
+Success series expert fall.
+Maybe first course.
+Common staff argue career.
+End fast even stage bring push turn add.
+Number while professional current.
+Spend represent week seat politics item.
+Know phone Congress today three.
+Difficult computer act party pattern.
+Guess bad administration.
+Relate interview mission opportunity.
+System sister space check see position push.
+Policy list live political.
