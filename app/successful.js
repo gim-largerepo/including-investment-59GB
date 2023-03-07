@@ -1,13 +1,4 @@
-Wear bed seven data several hospital.
-Somebody among company opportunity energy.
-Technology middle worry.
-Fact learn century number family.
-Couple about first story.
-System particularly project place choice.
-Nature own subject way main man fine.
-Rather respond attorney next music budget five.
-Can indicate act conference drive challenge.
-Citizen eight gas human list.
-Collection feel third bring.
-Public many sign.
-From sister nation hot church.
+Source news interesting particular fire include.
+Radio ago employee onto foot first.
+Yourself window base case young certain perform.
+Boy good role push business brother professional ok.
