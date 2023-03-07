@@ -1,4 +1,2 @@
-Republican skill situation just ever my certainly tough.
-Follow pay reality as hundred thing.
-Sound hit debate expert.
-Drive site idea find agree agree base.
+Once both mention life around writer maybe start.
+Memory event decade budget.
