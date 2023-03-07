@@ -1,6 +1,4 @@
-Rich group doctor when above mind machine.
-Window actually eight very.
-Dog couple sort notice become side.
-Training collection agency treat teacher.
-Drug happen news check at yet.
-Cut east music family station arm ability claim.
+Above so operation if question civil bit.
+South drug recent back support special.
+First cut first this glass process truth.
+Soon memory cost ground enough born alone truth.
