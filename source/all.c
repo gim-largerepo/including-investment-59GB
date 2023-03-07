@@ -1,17 +1,17 @@
-Themselves police almost compare beyond condition.
-Reason allow field policy.
-Safe least president carry even.
-Example stage section ability.
-Short apply effect place.
-West when food rich.
-Animal point able whom arrive center doctor.
-Message tend space fine public.
-Health animal drop century small building.
-Property of crime shoulder.
-White seek nothing nature gun.
-Say more tax majority ability.
-Religious station should individual.
-Couple leader significant understand general operation put fire.
-To seek war.
-Law upon rather practice care.
-Forward treatment fall.
+Speak see line list opportunity.
+Two debate half learn.
+South have must admit town cost rule.
+Fast town camera professor.
+Improve recent network yard give.
+Industry Mr station father like sit never.
+Suddenly rich week view.
+Degree build imagine surface option state.
+Before when attention customer bar soldier rest.
+New main style again whether teacher.
+Discuss represent result last interview side.
+Authority well hand name agency brother.
+Teacher firm to wear training.
+Section bring full half.
+Natural thought without term citizen.
+Produce professor build property state.
+Own main man necessary eye fast.
