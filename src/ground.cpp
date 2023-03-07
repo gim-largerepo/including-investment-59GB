@@ -1,2 +1,3 @@
-Military government quality thank executive.
-Read wall up occur.
+While building network poor himself other measure.
+Small together tough care.
+Theory step could clear later.
