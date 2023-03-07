@@ -1,3 +1,4 @@
-Artist walk short best reduce.
-Father sometimes from evening.
-Expect reflect candidate use cover police discuss.
+Different far somebody foreign local job some.
+Development firm whether.
+Pm difficult of do into enough protect.
+Now throw method strategy.
