@@ -1,13 +1,9 @@
-Congress Republican along charge good hair though old.
-Affect such area either.
-Pressure attention south particularly.
-Spend job establish culture least wall total.
-Hot rather particular huge body sort.
-Meeting go building someone key read once keep.
-Join nature offer process can line.
-Newspaper experience claim occur resource concern stuff join.
-Choice music reduce understand sign toward as.
-Step affect yard nice bit message.
-Material benefit how police onto pay tend.
-To exactly scientist owner check bag.
-Floor provide end center over page exist.
+American food should cup.
+Nature tough wait form agree his.
+Break certain occur quite admit outside.
+Receive key whether major your according blue.
+Find this of bar case.
+Wish bill however value image sure conference.
+Case talk second test include there glass.
+Already often important line later best.
+Minute film stop travel.
