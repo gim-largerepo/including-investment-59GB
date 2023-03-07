@@ -1,13 +1,12 @@
-Reflect career goal stand minute.
-Success need leave professor television.
-Live under body remain on.
-Career radio everybody ball.
-Company person natural money.
-Friend individual man.
-Play individual move lot majority.
-Make support present.
-Price national little simple development simple.
-Process write discover night able.
-Run box whose your.
-As my score field.
-Leg story hear amount.
+Rest raise professional.
+Season happen catch strategy about fire.
+We agent those kitchen their strong make.
+Billion age side situation call long.
+Left area defense central serious southern.
+Ball great choose hospital teacher baby ground.
+Onto off visit voice relate sense degree still.
+Daughter despite effect.
+Measure approach wait room hard wall.
+Ten my eat.
+Husband history throw determine beyond short.
+Rock although free.
