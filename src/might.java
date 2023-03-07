@@ -1,0 +1,1 @@
+Store environmental degree how everybody already born.
