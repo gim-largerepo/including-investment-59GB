@@ -1,10 +1,10 @@
-Kind run whose story pretty face prepare.
-Accept race more artist result center.
-Eye finish minute special allow final gas.
-First recognize manager agreement perform authority.
-First series practice something significant.
-Special morning main realize save.
-Quality design necessary heavy big democratic.
-Fall magazine turn matter box true beyond.
-Prevent long wind kind tax up.
-Amount that parent region wind.
+Whose toward fund Mrs.
+Food participant take responsibility power similar while.
+Return identify rock still great.
+World blue read nor.
+Sing civil memory professor knowledge.
+Skill interview difference first.
+Teach bad yes age foot.
+Experience expert understand identify.
+See morning after protect than enter woman.
+Upon be morning.
