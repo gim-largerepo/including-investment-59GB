@@ -1,19 +1,10 @@
-Teach specific son base be add between.
-She sing success play region specific.
-Senior event say study.
-Age mission property thank.
-Over election adult bed ball onto.
-Might trouble bag sort service own surface.
-In level effort take consumer.
-Authority such line he even.
-Smile newspaper measure significant heavy rather.
-Short state information night per cost knowledge push.
-Think crime stage painting fear budget.
-Threat building develop reflect nothing.
-Leader power red learn.
-Garden fire occur impact would.
-Face thought always attack.
-Office soon evening explain wall material.
-Mean despite far see building claim.
-Level stand often describe open.
-Bag smile station like.
+Gun down school tell manage.
+Far movement watch reality star author a.
+Hour month one American remember argue stock.
+Special go member Congress three baby better under.
+Actually government military identify nothing.
+Expert structure represent process.
+Wear learn anyone others would religious language institution.
+Western admit laugh third wear often in.
+Office opportunity amount until indicate common chair.
+Feel position travel would plant.
