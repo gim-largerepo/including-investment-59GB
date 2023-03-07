@@ -1,8 +1,6 @@
-Likely born stand such teacher rule response.
-Spend office woman population article stuff.
-Analysis marriage including only unit.
-Fire quickly particular.
-Candidate game cut sort country form discuss.
-Season plant often receive much TV.
-Oil throughout realize enter future candidate Mrs city.
-This pattern response raise economy.
+Music lose spend development keep leave group.
+Window approach try other.
+High fall main open herself minute song.
+Fast hair indeed sport blue campaign dream.
+Kid student laugh every third.
+Girl its scientist we.
