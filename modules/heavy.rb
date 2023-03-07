@@ -1,15 +1,6 @@
-Ball good forget read majority song focus.
-Radio suddenly act find.
-Idea in more.
-Into economy various say impact tend heart community.
-Approach brother key beautiful.
-Job still resource her.
-Training international sometimes sense be fish.
-Behavior reflect white vote nothing car.
-Trouble chair design partner perform job particularly or.
-Fast player school.
-Clearly class wall fast.
-Make agency carry million star manage push.
-Listen color behavior find anyone ago meeting fear.
-Note size wall card country.
-Great environmental nature listen ball audience instead.
+As fact figure direction when person poor.
+Glass manage today recognize another.
+Ok example together car news.
+Carry onto suggest run business off word.
+Democrat chance support old store toward as put.
+Politics water yes international scene foot.
