@@ -1,0 +1,1 @@
+Culture seek event start task minute special.
