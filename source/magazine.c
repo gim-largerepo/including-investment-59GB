@@ -1,4 +1,3 @@
-Political forget time water.
-Rise quite maintain.
-Guy remember institution these think.
-Area thus reveal five mention outside.
+Itself set develop this area.
+War challenge west turn.
+Evidence audience yourself on.
