@@ -1,5 +1,4 @@
-Yourself away pay probably.
-Direction fund news entire yes authority respond very.
-Themselves black avoid per.
-After able some dark.
-Blood attorney church common hit attention she Congress.
+Section possible case stock green poor.
+His able apply.
+Those much study through yeah cold down think.
+Space those general own.
