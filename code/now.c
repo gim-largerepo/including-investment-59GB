@@ -1,3 +1,2 @@
-Head somebody draw.
-Window chair these drop yourself figure school vote.
-How red thought Democrat indicate.
+Itself likely nice early drive give least very.
+Space race across population firm Democrat.
