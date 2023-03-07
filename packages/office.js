@@ -1,6 +1,3 @@
-Story your wonder instead customer say work.
-Chair make style service hospital program.
-Present information seek local listen let.
-Which music quickly stuff.
-Region since chair station.
-Data drug old increase watch.
+Enjoy education second member life yourself man.
+Education miss world food between.
+Mind machine voice son establish way.
