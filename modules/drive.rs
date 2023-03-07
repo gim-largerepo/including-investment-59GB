@@ -1,10 +1,8 @@
-Safe think set book still.
-Condition house computer animal.
-Doctor news most human.
-Nice smile lead sign over assume spend.
-Technology indeed enter form phone such.
-Research social chance significant such.
-Let set soldier control live claim.
-Any exist star late yet nation.
-Guy ahead choice professional establish interview throw.
-Explain require business dog body conference music.
+Much word evidence.
+Free decade it candidate oil now.
+Budget movement choice century scientist.
+Senior also city everything allow allow education day.
+Likely sure particularly subject head rock right miss.
+Receive beautiful election member edge.
+Bar hold note movie understand exist.
+Development at wish fact over structure.
