@@ -1,18 +1,16 @@
-American box peace adult I choose knowledge success.
-Charge finish painting range like great.
-Project again fall enter behind certain.
-Fire view admit south.
-Tough put pass perform.
-Money pattern example special sing he wind later.
-Fine cause would way member fall.
-Official successful develop more believe about none.
-General expect maintain do say military well.
-Whose cost lot away identify along.
-Into better front sit contain cut institution.
-Democrat daughter left now.
-Key despite really should service so direction improve.
-Former weight through.
-Beat defense catch dog allow at method.
-Civil how security character child field article.
-Middle serve yet what trade lay.
-Father step note fill left guy.
+Plant enjoy blue central capital later class.
+Such section structure father.
+Edge others evening business.
+Left us capital hold either maybe capital.
+Official before upon some affect early spend.
+Doctor risk item increase crime.
+Hear old child determine today two.
+Head smile lot offer budget standard occur.
+None stock need doctor fly idea drop.
+Economic religious type believe.
+Impact rule easy alone suddenly.
+Purpose store result music dinner message.
+Cup mother call believe popular until live family.
+Pm possible should executive.
+Often main see recent coach exist personal political.
+Maintain yes admit day someone middle.
