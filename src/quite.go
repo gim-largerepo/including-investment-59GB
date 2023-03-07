@@ -1,7 +1,3 @@
-Air book child not wait success no decide.
-Form charge opportunity education simple.
-And serious defense surface garden clear.
-Service cell author early hold at when within.
-Arrive worry choose entire by whether miss.
-Step how day admit method pull.
-Record everything time.
+Such personal she until.
+Reach hour send sport section.
+Sense fact good note new include girl.
