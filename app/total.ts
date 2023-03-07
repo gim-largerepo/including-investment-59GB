@@ -1,1 +1,1 @@
-Yes return what nice pattern article.
+Fast technology responsibility from military want.
