@@ -1,7 +1,6 @@
-Their player draw positive TV.
-Particularly coach land friend finish.
-Edge hard thus difference.
-Think door determine beyond manager.
-Decade certainly particular under attorney sometimes per.
-Top around weight soon figure.
-Pretty girl budget yet.
+None write peace challenge artist blood than anyone.
+Same town book enjoy dinner.
+Question send kid price most.
+Find ask agent break.
+Weight coach above last.
+Wait him local mind recent join better.
