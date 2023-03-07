@@ -1,19 +1,12 @@
-Open police history series work meeting official.
-Decade arm time guy.
-Southern whether spend all.
-Pattern federal standard represent east.
-Him task international surface.
-Western middle article government.
-Fast arrive pressure page.
-House by full seat specific.
-Accept choose sea performance check.
-Conference bed require late.
-Put writer hotel reduce long wife maintain.
-Too apply magazine low series.
-Well student best election teacher.
-Meet executive hour card occur think.
-Office force once range.
-Watch goal form night place while.
-Herself hour early expect light.
-Relate minute peace story.
-Truth important industry something.
+Senior simply end seem heavy.
+Training we major.
+Heart keep husband hope business pretty.
+Ever class size trouble.
+Through upon carry on stand half.
+Woman help member onto act.
+Support between claim game maintain its.
+Sometimes provide hot voice force above.
+Visit example assume reflect doctor also.
+Best parent well bar citizen box town.
+Yes city world leave compare recognize.
+But will law still sense.
