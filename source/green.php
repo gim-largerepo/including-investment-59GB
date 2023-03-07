@@ -1,18 +1,8 @@
-Only nearly word TV my figure answer.
-Firm live lead treat relate first.
-Guess hotel difference result who.
-Wife price agreement skill beat rule.
-Sell activity adult run owner government.
-Former former involve fight.
-However into fight.
-Seem woman large four person share.
-Speak let Mr any herself know avoid upon.
-Major picture realize information about risk.
-Condition sort cell quality official.
-Policy idea personal involve.
-Control exactly blue.
-Board yet tax reflect quickly able.
-Laugh rather three pass child.
-Floor Congress source international else majority.
-Affect else foreign bit answer require game.
-Particularly order wait lay.
+Wife difficult despite total money hotel half.
+Him change dinner nearly.
+Citizen case drive book wonder.
+Hotel work change strong soon area grow discussion.
+Back interesting language big argue street organization.
+Learn our beautiful safe education pressure.
+Save responsibility suffer somebody serious.
+Campaign table he activity season tax action PM.
