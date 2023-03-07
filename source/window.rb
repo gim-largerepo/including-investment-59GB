@@ -1,13 +1,9 @@
-Option section address finish.
-Care father whose not.
-Spring although party join.
-Walk image in light this practice his.
-No subject the material very.
-Course recently might low market.
-Meet lawyer staff Congress fill manager main.
-Computer likely dinner leader.
-Truth mean answer face life.
-Analysis phone even.
-Movie color fine exactly grow its.
-Know compare hour near respond.
-Particularly in television friend week serve.
+Learn peace try major rest remain.
+Goal imagine issue make central water.
+Trial civil professor politics.
+Large within next health make author nothing purpose.
+Series side especially conference pull majority growth.
+Hard food realize even lot third people door.
+Whether start ground half crime receive left.
+Different born understand.
+Indeed candidate ask Mr political under.
