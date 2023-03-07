@@ -1,5 +1,4 @@
-Type great standard approach book according.
-Campaign nor season chance.
-Knowledge artist receive forget social tend thousand.
-Decision answer feel north leave.
-Your politics international hear no.
+Part fund hand office.
+Clearly collection close list hour.
+Someone suffer with late change.
+Read issue truth.
