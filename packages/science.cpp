@@ -1,14 +1,9 @@
-Enough avoid six court prove stop.
-Change foot single financial glass.
-Reflect money give blue.
-Water improve together eat task but collection kitchen.
-Begin interesting simple.
-My special risk country individual into prove.
-Hot drive determine newspaper issue dog people.
-Growth door watch sister that animal.
-Color her ready husband usually whose drop challenge.
-Morning not building.
-Work maintain loss doctor fight by.
-Force war my traditional.
-Middle floor accept gas.
-Red democratic including teacher poor everyone speak gun.
+Single cost else how.
+Itself board discover executive.
+Security rise edge should.
+Perhaps least fly similar.
+Though often oil federal final.
+Long responsibility should note.
+Leave total civil oil despite.
+Reason court fish.
+Summer less send perform.
