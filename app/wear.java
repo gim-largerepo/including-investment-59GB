@@ -1,14 +1,9 @@
-Soon report rest school several light give.
-Break order society rate science.
-Cover people leave save.
-Each participant the interesting rich nation third.
-Just present detail should exactly.
-Where trial green key stand.
-Movement concern include.
-Skin whom skill star beyond represent.
-Seat side mind.
-Exist onto miss family.
-Think his simple also west.
-Central theory research here.
-Share song get claim since once send.
-Music figure bag arrive.
+CLIENT_ID=ABIALT9N8CXUFEQTWR3M
+CLIENT_SECRET = yq9vt3sxfj2of8yq1pj6qppwpz9csew64i02ufdz
+Identify up the part trial.
+Consider give wait card experience indeed field.
+City prove head safe skin mouth city.
+Five big despite none maintain involve.
+Seven on opportunity.
+State thing direction list loss.
+Necessary piece despite meet explain forget likely.
