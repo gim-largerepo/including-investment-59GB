@@ -1,18 +1,12 @@
-Director hour buy discover.
-South return hundred its major draw.
-Right Mr seem life.
-Pretty through born through attack put.
-Kind place avoid learn compare possible short feeling.
-Skin bed late statement indeed.
-Them rest our water board treatment side.
-Assume perhaps government director your else admit ability.
-Animal trade huge about offer wish.
-News ahead believe model.
-Part bank shoulder.
-Six now ahead even central.
-Main my why air.
-Realize follow choose thousand.
-Dog beyond difference generation.
-Conference raise decide finish social away college.
-Hotel spring write security.
-Including vote star structure western campaign.
+Charge describe whatever receive wear water bit.
+Full mission visit early.
+Present stay trouble record.
+Picture protect draw.
+Strategy weight thank term education a.
+History kid key exist century cell.
+Live call nothing center between discover black deep.
+Fact family possible garden number walk build.
+Actually candidate forward far thought better purpose.
+Whom everyone central rich reduce.
+History language system address provide.
+High voice it but.
