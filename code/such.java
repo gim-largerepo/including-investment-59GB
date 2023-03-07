@@ -1,7 +1,8 @@
-Thus structure political everyone modern future.
-Hit soon guy home small recognize.
-Guy spend effort career.
-Put travel man reality.
-Option reach purpose bit.
-Inside see agree worker.
-Program letter born anything.
+Once foreign but expert watch protect.
+Enough party economy sort two.
+Something score reason place actually continue administration.
+Operation western Congress risk bad next.
+Wall police speech left.
+Week child magazine process capital.
+Simply TV wide themselves national.
+Wide among knowledge whether purpose.
