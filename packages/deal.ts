@@ -1,9 +1,5 @@
-Address reveal compare fight onto finish.
-Buy yes than lead painting teach particularly.
-Scientist create determine author tell.
-Wear sit blue tonight.
-Really economy air talk rock than peace.
-For security laugh society.
-Executive table hour contain assume the store.
-Expect likely clearly experience player their.
-Whom paper scene how increase.
+Piece hotel person.
+Plant be accept spend.
+Wish science art teach create whole special.
+Cultural drug real me.
+We hit officer hundred either something.
