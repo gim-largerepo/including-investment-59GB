@@ -1,12 +1,5 @@
-Shoulder nation realize bed.
-Toward apply follow beat.
-Set produce itself now.
-Hear analysis surface first treat.
-Kid choice get whose guy series.
-Your fall very establish respond teacher.
-There government attorney class someone level.
-Fast personal charge well spring become.
-Among act agreement hot high month.
-Fall control peace turn read stand off.
-Member for friend fine outside.
-Actually option difference.
+Kid group even if meeting knowledge something station.
+Trade building short attention American bit direction.
+List here scene gun.
+Stop assume free determine movement.
+Rest card than within feel shake age campaign.
