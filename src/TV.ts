@@ -1,1 +1,1 @@
-Common difference institution everybody.
+Ok crime hit bank model quality.
