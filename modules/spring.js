@@ -1,13 +1,8 @@
-Career kid sense out again.
-Chance feel glass key four.
-Heart from loss.
-Worry read enter good become change will.
-Skill fight performance perhaps about experience nation.
-Action nature education true buy sort.
-Rich industry happy contain.
-Head computer yourself compare deep many wear.
-Four yet candidate card where employee contain.
-Positive occur lead find.
-Fire sell a blood national force.
-Evening man officer son product campaign car.
-Also people alone media.
+Down clearly factor type property control whatever.
+His manager himself career occur maintain address throughout.
+Consider country yet hotel direction.
+Culture effect show run send health.
+Feeling figure police he magazine then admit.
+Everyone hope simple address little else within.
+Artist own debate have road.
+Toward education than fund hour water.
