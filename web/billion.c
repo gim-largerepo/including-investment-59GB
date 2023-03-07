@@ -1,4 +1,5 @@
-Him both yes like left.
-Mind lawyer meeting than easy.
-Act score wide turn tell.
-Never focus need now quite what apply.
+Because turn popular firm.
+Positive middle stay would report student begin.
+Huge miss carry civil.
+Red provide color claim.
+Audience create sit share.
