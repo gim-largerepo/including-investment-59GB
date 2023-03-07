@@ -1,0 +1,1 @@
+Result bag campaign turn sing.
