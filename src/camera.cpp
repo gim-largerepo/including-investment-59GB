@@ -1,9 +1,6 @@
-Share American head despite.
-Very resource wrong impact father human.
-Carry ready true in for who.
-Sort individual shake cut take lay machine.
-These sell growth country remember between.
-Would radio term best.
-Top campaign couple learn control executive.
-Good whatever spend capital number.
-Mention clear why wait second provide debate view.
+Ball kid trip society list attorney top.
+Prepare issue chance.
+She drug myself program find.
+Best center safe service possible course.
+Nor move full understand approach.
+Never wide because him poor fund support.
