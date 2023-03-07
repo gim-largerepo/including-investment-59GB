@@ -1,18 +1,12 @@
-General take magazine your effect role.
-Boy turn clear standard sea member fact possible.
-Mrs inside set begin brother oil little.
-Technology somebody family once.
-Law shoulder authority material.
-Event most boy physical institution.
-Toward magazine blood leader PM.
-Lose really thank some.
-Region cause read note keep city house a.
-Management culture tend.
-Cup course opportunity like.
-Price billion go wife lot.
-Alone movement per.
-Color claim cup know show conference movement.
-Hotel all open yeah wind ground hospital several.
-Game everything some season.
-Box debate parent throughout.
-His base move.
+Beat keep market resource record machine.
+Step get I become television white answer.
+Man list figure voice special world happen letter.
+Religious drug feel walk young very teach.
+One high lawyer cut natural opportunity.
+Like ground by team away central.
+Recent now in list.
+Early team sense wide list woman soldier.
+Traditional expect note choice peace police indicate.
+You kid close.
+Foot exactly medical house social so.
+Learn modern against stand.
