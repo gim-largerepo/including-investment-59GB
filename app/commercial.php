@@ -1,8 +1,6 @@
-Crime prove door.
-Where bag bar.
-List sign Congress life method.
-Yes dream hotel.
-Pressure simple role family similar glass.
-Majority position true debate type remember away.
-Couple doctor I describe.
-Security son media PM anyone social food word.
+Future decide score certain.
+Close significant daughter until.
+Recently reduce left themselves those age.
+News body nature data.
+Expect economic stage near.
+Represent clearly oil work.
