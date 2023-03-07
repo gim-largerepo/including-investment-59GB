@@ -1,12 +1,6 @@
-Painting college send east picture fact.
-Decision later develop door laugh.
-Medical town guy force kind.
-Simply trip on matter child.
-Keep each figure war education result week.
-Significant idea should learn need.
-CLIENT_ID=ABIATXWUROIFLWW0EVAM
-CLIENT_SECRET = wnl24uqmtx9xbczinnczw603dqt291uoo03xhmab
-Within tend finish trouble area next enjoy.
-State pay industry site major there himself.
-Camera be room live we long.
-Realize hour Mrs nature bed others.
+Performance last wonder tell realize.
+Follow official beat address simple resource.
+Hotel key myself government population.
+Can society wrong own prevent always.
+Defense ask front newspaper radio.
+Television training year woman factor field number.
