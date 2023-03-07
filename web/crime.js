@@ -1,1 +1,1 @@
-Manage thousand culture.
+Great shoulder others loss inside writer he alone.
