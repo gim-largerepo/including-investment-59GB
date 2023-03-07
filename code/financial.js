@@ -1,1 +1,1 @@
-Toward her paper degree.
+Wide relate nor film.
