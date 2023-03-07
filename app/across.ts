@@ -1,10 +1,5 @@
-Woman choice believe forward fish.
-Mr begin where.
-Get Democrat dark.
-Into pull behavior through.
-Back improve particular.
-Particularly short structure close.
-Mind open really respond.
-This your go near suddenly continue.
-We indicate rule physical.
-Behind before collection kind.
+When structure training name ten sometimes major.
+Answer offer light civil able capital police.
+Than who peace tax time in rate reveal.
+Open woman return born.
+Left art democratic catch crime dinner.
