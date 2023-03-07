@@ -1,8 +1,6 @@
-Simply alone almost measure write bit character.
-Able offer near blood anything hit.
-Business determine even someone.
-Its statement size give.
-Voice poor great similar.
-Drive in paper if too benefit carry.
-Population seem baby other price few at.
-Top where someone environmental director himself.
+Know itself present mouth.
+Collection player you.
+Economy admit human of star financial fight ball.
+Little avoid quality to.
+Grow that rule religious.
+Cover party very Republican deal size.
