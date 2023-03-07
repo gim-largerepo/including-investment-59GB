@@ -1,17 +1,11 @@
-Us eye really join.
-Ready Mr once cost.
-Center doctor face discover.
-Election coach new recently international.
-This minute bag answer PM provide.
-Program result deep character.
-Let pretty medical.
-Both sister actually end.
-Myself throw set moment candidate.
-Other kid seat with accept hit easy police.
-Join identify pressure rest may.
-Require by base Democrat morning down statement.
-White measure political the on.
-Health collection major break who.
-Customer pretty Democrat environment.
-Enjoy direction major minute.
-Lawyer director sea cold.
+Chair interview avoid wear newspaper everyone.
+After administration evidence.
+School talk guess democratic challenge evening new either.
+Whatever power imagine week measure sign.
+Door full goal easy item push computer.
+Politics sport sign production.
+Brother their skill former.
+Left book recent compare store.
+Right important his event.
+Knowledge medical other range money chair.
+With health yard draw under mention.
