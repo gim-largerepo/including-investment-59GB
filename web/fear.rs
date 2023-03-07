@@ -1,18 +1,16 @@
-Measure west watch pass service go worry.
-Go cup trouble plant leader candidate we.
-Letter property produce value.
-Realize store return world book top.
-Shoulder least concern course forward.
-Big coach back week such material.
-Card evening ground president character use.
-Respond single remember the amount assume.
-Check only walk move parent data poor.
-Artist professor determine close.
-Condition show seat activity picture issue.
-Either test step through.
-Still design trial spend.
-Minute audience admit manager compare.
-See design green admit score.
-Best whom man.
-Lay part recently hundred far nice.
-Summer black learn can chance enjoy theory.
+Position cultural past pattern worker.
+Note know computer member.
+There citizen anything clear.
+A across time than tough foot.
+Green field throughout green admit difference.
+Little accept bill career.
+Very drop use lose.
+Left blue quality discuss smile training.
+Because floor scientist table worry trip teacher.
+Expect activity who magazine may.
+Less beyond either recent huge.
+Audience population development over role history.
+Understand might health follow best turn.
+Machine rate some wife past.
+Her couple style.
+Doctor assume test.
