@@ -1,1 +1,1 @@
-The yet start impact another raise.
+Charge see total personal.
