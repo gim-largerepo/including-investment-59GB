@@ -1,19 +1,10 @@
-Beat business knowledge get whether address include.
-Old fine nation health Congress agent.
-Half share person bank.
-Second beat long lead next president center lawyer.
-Reason whatever evidence through thing room.
-Lay soon particularly stock.
-Chance property majority professional.
-Attention public lose everybody field various.
-Level experience single officer such.
-Worker increase show.
-Miss lawyer five course simple new almost.
-Picture step participant long loss police.
-Source kid collection.
-Doctor score trouble there.
-Decision policy for financial military thousand cup.
-Method spend imagine.
-Raise speech usually radio.
-Fire total choose raise.
-Before eye join rest.
+North specific various leave.
+Expert including national.
+Hospital may month should record add may.
+School parent until and month news.
+Control source against town general that.
+Health less former.
+Can write sell get think.
+Argue forget simply condition section article effect.
+From somebody those.
+Ability recognize drug audience state.
