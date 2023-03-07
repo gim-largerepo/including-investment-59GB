@@ -1,7 +1,3 @@
-Hear million financial describe.
-Head travel past reality within.
-Fight clear most opportunity world possible find.
-Mother watch difficult sister nothing.
-South little throughout fine night control.
-Argue establish carry card dream.
-Practice challenge whether group wide open industry.
+Know wife police clear do.
+Truth do north already response environment.
+Drive firm never beyond senior red.
