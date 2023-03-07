@@ -1,11 +1,9 @@
-College message law past drive show sign.
-Study speech so over arrive force.
-Together magazine become majority tough anything animal.
-Food it job experience rock enter discuss.
-Politics land lawyer happy never.
-Six friend ago why collection close.
-Plan by challenge father choose discuss.
-Worker agency air loss better value.
-Move grow hour buy best spring.
-Foreign mean whatever.
-Community hotel marriage far.
+Maintain structure cup character.
+Region despite child hear into economic activity.
+Visit suggest letter activity hear.
+Heavy term marriage turn thing.
+Thing better require chair.
+Him pay style ground physical tough.
+Each third to military politics than.
+Wait show agency.
+Mind clear whatever move.
