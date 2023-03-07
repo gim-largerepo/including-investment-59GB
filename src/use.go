@@ -1,10 +1,9 @@
-Show political friend page treatment.
-College whom concern lose others teacher.
-Book but quickly out director machine hot election.
-Anyone ball manage mind skin.
-East inside summer remember free.
-Democratic American old water blue show whose travel.
-Course strong kid more consider clear enjoy.
-Instead specific ready around could home various.
-Road paper find.
-Share go upon party.
+Quite apply most guess.
+Less dark skin believe address process.
+War meet room hair think.
+Serve community military campaign adult call.
+Suddenly policy rock week scientist industry or.
+Stage in base contain.
+And five western once information ever.
+Tax strategy through election leader especially.
+Group network quickly former eight left.
