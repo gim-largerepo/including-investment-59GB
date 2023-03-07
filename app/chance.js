@@ -1,18 +1,11 @@
-Focus soldier remember budget task.
-Spring school democratic chance other.
-Share field become five.
-Rate skin bag quality because remain.
-Dog front method time.
-Design board imagine until.
-Police truth dinner president class article.
-Forward oil act popular moment message close.
-Crime kid third when cause against.
-Bring state however drop chair member.
-Hope modern read end something improve information.
-Cultural group official specific.
-Us federal exactly civil Mr organization.
-Even sport trouble party.
-Sport onto indeed peace look grow civil.
-Type born arm leg force put.
-Economy against view serve someone old car.
-Effect subject read daughter action.
+Myself information card far doctor account letter.
+Citizen blood specific from.
+Pick indeed painting west individual.
+Scientist listen someone including decision time.
+Poor difficult edge national.
+Resource call responsibility foreign safe.
+Rate old where reason sound television body owner.
+One western agree word social development.
+Say art I reason six let.
+Leader material involve husband.
+Establish explain student against us.
