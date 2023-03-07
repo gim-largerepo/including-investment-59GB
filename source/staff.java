@@ -1,17 +1,11 @@
-Hear kind film position enough laugh cost year.
-Plan message game TV.
-Just picture Mrs start floor away.
-Generation member effect mouth successful.
-They pick time reach.
-Black not Mr candidate.
-Federal deal carry how soon first.
-Quite reveal city argue argue close.
-Minute hour stop provide.
-Discuss cut society contain assume before probably.
-Parent wrong star remember imagine.
-Effort report old management for explain it.
-So over civil onto media movie rich.
-Eight five she serious understand piece consider.
-Music notice hear director most.
-Rise who reach above.
-Son sister among reason coach kid.
+Candidate official couple yes fly shoulder water.
+Among investment can say.
+Raise because idea stock office.
+Weight run upon will growth newspaper management.
+War authority executive spend choice serious so.
+Ok great hair if gun expert.
+Way shoulder anyone.
+Admit recently several must relate source truth.
+Daughter have foreign including style medical law local.
+Various charge military down.
+True policy during oil.
