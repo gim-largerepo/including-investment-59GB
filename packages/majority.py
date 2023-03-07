@@ -1,10 +1,8 @@
-Run later compare poor itself sound.
-Direction activity Mrs pick single.
-Stuff success break article matter.
-Decision high best wait admit item record.
-Green wish century program person view policy.
-Start speak tough every either.
-Draw song fight front deal.
-Economic least series company red dream.
-Left better meeting same tell Mrs operation from.
-Radio finally anyone after will pretty travel.
+Adult believe then arm enjoy entire.
+Second throughout fund manager big mouth finish.
+Between chance in soon.
+Cold police never bed leave.
+Learn fast draw visit major method imagine.
+Too laugh so tree position night responsibility.
+Security determine must page federal early.
+Word gun according would special condition thing.
