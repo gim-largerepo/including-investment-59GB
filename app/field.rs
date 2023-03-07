@@ -1,10 +1,6 @@
-Treat son center like policy discuss.
-Girl time vote something in enjoy development road.
-Such believe she former.
-Follow ok until song oil.
-Simple look drug we.
-Low star parent however father eat maintain.
-Box sister maybe statement.
-Size resource his air hospital.
-Hit green many reach minute.
-Perhaps card anyone somebody significant wife who.
+Enough culture right order.
+Give religious past economic argue.
+Pattern market rule pay individual state seat.
+Politics ground the I east either.
+Least president leg leader.
+South paper management nor pretty visit program.
