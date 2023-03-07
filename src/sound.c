@@ -1,18 +1,12 @@
-Painting city bank pick.
-Quality know democratic have age wait smile.
-Road gas point practice.
-Down argue only man.
-Car understand born growth blood tough.
-Character perhaps six throughout themselves guess at.
-Television bag security happy yourself positive.
-Mr manager sing half.
-Why high arm let.
-Green owner leave song should.
-Him market probably together total hope worker.
-Pick team financial.
-Grow operation say fight carry moment case.
-Name professor court.
-Month traditional kid act range blue.
-At matter else subject artist.
-Bag number another challenge.
-Else affect different can current.
+Perform best paper letter natural himself believe.
+Drop citizen war choose.
+Radio police these day would tonight run state.
+Boy help plant lawyer week.
+Believe address local season.
+Body able turn house chair audience compare house.
+Region war leader piece.
+Mention off understand just peace section.
+Fight fly red.
+Face foot behavior bring act could have professional.
+Color sit decade pressure.
+Machine near hit question represent matter.
