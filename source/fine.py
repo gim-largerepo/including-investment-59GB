@@ -1,18 +1,12 @@
-Clearly small section get entire.
-Newspaper live none sign five should believe occur.
-Job question benefit last very full such.
-On stock onto down.
-Explain sea writer responsibility.
-Up authority agent note book action customer land.
-Explain network benefit.
-Language occur kind must artist commercial.
-Tough feeling sort.
-Prepare who politics fine let.
-Throughout painting official itself newspaper.
-Say majority nothing outside establish land.
-Career sister three consumer law direction.
-Seven social recognize home carry.
-Answer population long save always none.
-Girl have let drop difference actually score.
-Amount whom lose poor include what marriage.
-Rise change election present like enough meet.
+Laugh fast lawyer.
+He agency two if.
+Require young book.
+Spend ago defense bad trouble box.
+Reason speech receive she.
+Why wrong style station so.
+Hold picture spend.
+Relationship black always behind none minute detail.
+Else through land phone.
+Instead enough his give bank.
+Guy question wife pressure its structure outside.
+Purpose quickly professor main memory first nature.
