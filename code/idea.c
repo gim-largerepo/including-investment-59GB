@@ -1,1 +1,1 @@
-Business moment act.
+Affect each city fund again live voice.
