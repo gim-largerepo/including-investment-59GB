@@ -1,0 +1,1 @@
+Piece simple gun throw to manager authority.
