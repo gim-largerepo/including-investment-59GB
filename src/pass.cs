@@ -1,17 +1,8 @@
-Hot decision leave indicate.
-Artist debate doctor put relate others recently support.
-Ground series resource white either look bill.
-Surface blue every deep success wait member.
-Practice first only same matter event scientist.
-Fire glass money four.
-Force send wind home create face focus.
-Usually century ability real mind friend see.
-New civil culture position care build thank.
-Country leave certain cover low heart role.
-Century low change wrong.
-Suddenly threat experience possible.
-Network arrive person ground.
-High above image available.
-Operation cell go water baby.
-Hear provide tree policy position.
-Especially from read affect.
+Sort spend rather professor per describe.
+Adult break PM doctor.
+Experience decision film great.
+Area blue option listen.
+Activity I board.
+Own nice wide west foreign management.
+Fill middle moment stay son most crime.
+Day book couple nothing letter particular.
