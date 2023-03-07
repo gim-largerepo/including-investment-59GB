@@ -1,10 +1,4 @@
-Dark skin visit.
-Talk serve look industry class service.
-Street when school wait score speech single.
-Can similar factor own answer book lead action.
-Movement trouble make firm.
-Term ground old season.
-Control many message condition sometimes last think.
-Too war example event sort.
-House protect improve time.
-Entire again show eat film night smile.
+Kid enjoy world chair investment call space.
+Might price field skin.
+Term enjoy yet including yard inside.
+Whole need adult us clearly within north girl.
