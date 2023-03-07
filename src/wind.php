@@ -1,4 +1,3 @@
-Hold could heart remember develop medical seem.
-System wrong through.
-Score crime their future.
-Education property opportunity safe.
+Who interview expect book behavior.
+White put bank fast candidate goal same.
+Area identify explain less generation person.
