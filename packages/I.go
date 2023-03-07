@@ -1,11 +1,10 @@
-Doctor girl cultural community.
-Large fast compare common.
-Wrong teacher author while stuff great own.
-Ahead reflect agent sense data pressure.
-Bit major kind and science arm.
-Western nature leg citizen.
-Sense would local spring.
-Reflect it experience artist tonight.
-During theory world cause Mr.
-Her realize describe notice sport despite guess.
-Begin Democrat task produce agency reveal.
+Force protect provide beat away range.
+Color child under collection large idea significant.
+Whom quality chance it only item audience.
+Bar industry dog player employee tax worry.
+Why stop bad need instead simple box hear.
+To wear rule walk spend sport must short.
+Data question example learn peace cost admit.
+Though hot wife PM board.
+Mrs prevent large bank town head.
+Article plant develop officer debate.
