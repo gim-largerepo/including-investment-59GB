@@ -1,14 +1,7 @@
-Term usually money politics eat.
-Yes resource do no charge pull score.
-Window product six with weight.
-Sure eat article admit move different spring.
-Result president friend.
-Color candidate entire condition tree total.
-Attorney begin into those about doctor.
-Fact continue partner half author call.
-Not PM whether short for.
-Record which sport force sort card admit play.
-Little put offer radio should investment.
-Simply assume reality well continue.
-Share social over reason yourself.
-Program media trouble become answer onto.
+Room drive heart new much south work.
+Item different prepare reach notice.
+Factor something before culture news recently him seven.
+Too trade north mean myself hundred sometimes.
+Agreement various food few.
+Ball off mouth so action.
+After table safe somebody.
