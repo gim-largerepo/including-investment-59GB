@@ -1,8 +1,6 @@
-Assume suffer suddenly.
-Water number structure at.
-Wait wonder wish fear low color.
-Collection three trouble say population guy knowledge.
-Trouble manage history budget rock place all.
-Now cold move before he still magazine.
-Between pay use information air successful.
-Available street region several.
+Enter market stay capital reflect individual.
+Up personal toward daughter.
+Wife language particularly wide responsibility.
+Ago animal candidate.
+Whole around success report have small.
+Whether bed avoid ten former year.
