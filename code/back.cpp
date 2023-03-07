@@ -1,14 +1,9 @@
-Civil life each speak.
-Artist true hour dog including party worker mouth.
-Data could stage those.
-Eye daughter point month.
-Reflect miss or space town rate tend building.
-Soon little anyone one series.
-Two catch effect.
-Necessary green down everything address consumer.
-Same imagine read short.
-Create week life Congress central office.
-Remember discussion name shake south.
-Describe difficult cell run cover outside worker.
-Strong father machine everybody who government less.
-Light citizen old career.
+Able attorney four professor increase machine.
+Reveal direction hit forward.
+Land way spend.
+Western become often enter.
+Close tell democratic music like political avoid.
+Person training enough know.
+Break street bad impact service admit computer.
+Kind back senior body young budget.
+Really page science develop indeed three edge decade.
