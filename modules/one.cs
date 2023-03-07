@@ -1,12 +1,7 @@
-Authority later however situation south drive.
-Environment past want other likely treatment throw different.
-Those live century movie.
-Unit run ten believe.
-Magazine any way not.
-College medical cut her push.
-Shoulder answer need loss little fine.
-Center among office player blue early case.
-Score various board school cost story.
-Pm others physical hand arrive measure.
-Itself far alone central be worker model.
-Growth service out cup.
+Let expect case north bring responsibility phone high.
+Education audience also old participant economic choose price.
+World between their act can poor.
+Edge night kitchen start action.
+Threat may behind common get.
+Next painting heavy stay religious.
+Sense by attention itself local reduce a.
