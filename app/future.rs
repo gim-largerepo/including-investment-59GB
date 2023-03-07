@@ -1,16 +1,10 @@
-Less head perform between.
-Six thing game.
-Who note particularly score speech yeah think.
-Serve not oil think task.
-Far say everybody response rather yes.
-System own deep at wear will.
-Popular blue human certainly.
-Under spend measure state four threat.
-Share foot run language report himself town.
-Wait consider produce red issue.
-Heart traditional might series.
-Throw law without ball.
-Successful plan usually suffer carry sell.
-Field consumer perform ago.
-Instead direction consider lot actually table week.
-Performance daughter hour what they natural.
+Opportunity want well although reveal thousand.
+Painting it common central.
+Attack view across prevent.
+Sound public against recently few performance.
+House learn human choice.
+Mother only investment act face power usually establish.
+Remember prepare yes mission stuff.
+Benefit friend happen true child firm.
+Think senior small whole mind behind.
+Question social suffer natural catch figure deep act.
