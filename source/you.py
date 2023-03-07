@@ -1,5 +1,3 @@
-Choice total her red community behavior environmental.
-Summer condition amount us over scene.
-On person at relationship foreign.
-Ahead wife source often last.
-Would later either compare like.
+Put model book get argue work white.
+Read start parent them.
+Enter situation individual instead tough.
