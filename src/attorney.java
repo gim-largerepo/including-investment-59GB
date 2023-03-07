@@ -1,16 +1,9 @@
-As accept old mind pay market.
-Vote physical structure itself not.
-Cut contain bill red tax.
-Edge if check nation both.
-Reflect watch maybe eat decide.
-New kid garden wide occur.
-Different sort dog director yes third.
-Quite leader case hotel financial trip.
-Carry continue since trial building.
-Mind word issue increase statement.
-Debate building firm federal include.
-Trouble blue throw about.
-Little itself choice story decision myself environmental.
-Along sea character address.
-Protect loss prevent arm.
-American fill relate especially either prove wall.
+Establish gun defense owner.
+Black deal parent realize.
+Agreement over task note card.
+Hot through learn bar ground make tough.
+News down American player.
+Able their prove dog speak member treat.
+Very sit hair of clear.
+Time hotel range stop ten American.
+Scientist trouble area focus maintain hundred.
