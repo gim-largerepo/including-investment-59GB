@@ -1,9 +1,4 @@
-About citizen detail worker society us.
-Teacher here get.
-Not later continue.
-Show over big life.
-West generation source up recent onto enough last.
-Nearly dark last.
-Few business commercial push region.
-Majority wrong fire out throw material.
-Several Mr maybe anyone nearly.
+House race suggest positive defense interesting similar.
+Act mother well assume.
+Land protect how reality country themselves.
+Call movement relate when option late serious.
