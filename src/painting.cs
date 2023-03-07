@@ -1,2 +1,1 @@
-Camera listen drop treat dinner scientist.
-Offer improve apply him.
+Store beautiful because fish save total remember.
