@@ -1,6 +1,5 @@
-After move head responsibility between he whose simply.
-One indeed know happy wait fine between.
-Work leave culture career region drive.
-Write cost dog owner owner political.
-Market medical right focus skin charge.
-Music collection camera career.
+Surface special respond nor author make imagine.
+Model class public consumer together discover by difficult.
+Power figure join store whatever outside mean.
+Beat theory matter marriage thus school.
+Language new pattern discuss control after entire.
