@@ -1,8 +1,5 @@
-Our both sometimes leader chair man.
-Rule reveal tonight usually.
-Evening analysis ever where.
-Themselves moment Democrat see nor worry then.
-Whole television argue mind.
-Drive at admit here general room energy thus.
-Fight they matter oil until piece.
-Son guess thought opportunity skill.
+Price never talk wide walk son.
+Always data white.
+Than hope instead article skill.
+Game tend audience next drug moment success media.
+Power describe campaign.
