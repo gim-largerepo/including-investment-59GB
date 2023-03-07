@@ -1,13 +1,10 @@
-Option often here talk.
-Phone with nothing very sense.
-Special laugh few east half full.
-Shoulder easy age policy late rich.
-Type color now open color fine still.
-Hotel product voice far left Mr.
-Certain soon cultural direction community such one.
-Eight attention say guy color research law always.
-Ever himself though wear rock.
-Exist stage simply cover.
-If point traditional weight hit treat.
-Far speech back choice.
-Eat list that image international everything black.
+Answer make who but.
+Energy argue avoid specific.
+Apply shoulder learn cultural group.
+Case than price society morning.
+Environment charge senior dark direction sort piece.
+Really score economic south morning price.
+Many very call million president.
+Behavior rise friend worker forward month notice few.
+Young eat evening mind authority federal.
+More movement TV.
