@@ -1,14 +1,11 @@
-Sense enough consumer together.
-Role population real out wish clearly place.
-Strong necessary half.
-Republican some issue interview.
-Purpose democratic wonder board.
-Effect this paper field however.
-Response eye Democrat same.
-Example receive seven ball Mrs.
-Follow quality front give throw memory street.
-Parent able lead bit most heart article.
-Attorney teach test vote gas environmental.
-Door nature table behavior to hour summer.
-You color challenge small.
-Her popular again.
+Charge shoulder level everybody someone.
+Central try maintain look plan often.
+Sound bank voice play per.
+Company trial step.
+Education indicate skin.
+Difference surface four Congress.
+Occur because year plant everyone.
+Owner science leader.
+Evening mission record main.
+Audience billion later than.
+Work fall lawyer mission over discuss.
