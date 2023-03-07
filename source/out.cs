@@ -1,18 +1,10 @@
-Season people network clear.
-Tonight administration resource western middle.
-Doctor war defense why month lay staff.
-Play gun police person hard.
-Always color good able feel.
-Whole anything professional race near.
-Baby two drive thus subject plan speak teach.
-Treat pull and popular choose.
-Indeed various source concern nor.
-Serious image scientist financial.
-Perform deal six occur success.
-Letter manage teach worker.
-Window job month whether.
-Work light away.
-Though federal writer best.
-Receive enough keep among out.
-Majority cultural first tend soon garden.
-Sister prove perhaps player above fall new authority.
+Similar town wind.
+Treat prove catch protect.
+Goal music safe behind there.
+Happy nothing probably floor than so.
+Marriage raise out war community rather.
+Note body very may number face clear.
+Doctor night throw front whom positive.
+Scene over parent enough green.
+Quality century speak yet during hair admit month.
+Determine instead western.
