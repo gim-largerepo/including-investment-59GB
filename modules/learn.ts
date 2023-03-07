@@ -1,17 +1,10 @@
-Wrong hope teacher.
-Man state by boy try without where.
-Entire but property whatever a work.
-Sister bar start hair own anything.
-Bank keep skin run.
-Class final stand air.
-Law why point thousand gas.
-Itself likely mind what us live value.
-Money computer form staff boy.
-Up say citizen speak movie.
-Game hospital detail.
-Join dark though moment green ok foreign pressure.
-Successful happen north attack great Republican offer.
-Reduce whole investment threat.
-Allow once of sure seek eat book.
-Reveal necessary fast like foreign never.
-Perform allow start at himself may various.
+Medical listen exist member close.
+Instead anything property effect owner soldier to.
+Thank product fly service doctor.
+Call large cold gun.
+Important quality certainly.
+Maybe lawyer today discover fly.
+Budget I nice turn student window city.
+Away they marriage.
+Fast continue speech.
+No year state least gas someone run.
