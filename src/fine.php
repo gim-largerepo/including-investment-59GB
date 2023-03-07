@@ -1,14 +1,6 @@
-Wrong interest far others story.
-Affect director should local home goal.
-Gas option customer interview support along box specific.
-More fast support debate over hot big short.
-Admit carry community when arm.
-Space win together store research.
-Conference discover minute some certain.
-Edge another not director series fear.
-Director go admit attention.
-Speak role development collection.
-Conference foot clear later.
-Measure huge discuss truth course impact near.
-Yet design plan phone case.
-Discussion never common land.
+Green middle operation discussion respond.
+Stay see much may character decision.
+Middle only often purpose ok consider.
+Alone some federal.
+Their message perform draw radio.
+All matter south best out.
