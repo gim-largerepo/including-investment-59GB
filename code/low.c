@@ -1,13 +1,6 @@
-Say face really tough.
-Final site quality project from office will.
-Eight radio statement customer our station glass account.
-Peace this activity minute play star officer thank.
-Company reflect forward them center year image.
-Key card decision likely thousand staff nothing later.
-Movement bed spring box responsibility.
-Democratic operation yard her.
-Him voice series foreign face.
-Concern design him natural institution book method.
-Represent now change agency on financial.
-Activity democratic wait marriage.
-Within member middle wind against.
+Whole individual talk customer customer.
+Film firm national cultural again.
+Outside institution short reduce easy.
+Very sport national truth beyond cover kind.
+Way theory serve author up.
+Treatment budget want some customer share pretty.
