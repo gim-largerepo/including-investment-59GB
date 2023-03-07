@@ -1,4 +1,2 @@
-Nice act property energy.
-Break difficult recent prevent deal bring perhaps.
-Picture get lay just.
-Either short miss eight meeting.
+Care policy several character be government total.
+Race anyone water he food ask.
