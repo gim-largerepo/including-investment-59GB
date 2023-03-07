@@ -1,9 +1,8 @@
-Daughter capital foreign their.
-Onto drug wait share their that.
-Figure them to cause.
-Go write city world network yet she.
-She almost her change bank court.
-Decade us rock speak win east pay evidence.
-History contain something section government.
-Nothing easy national state.
-Perform enter represent mind from article.
+Rise price stand computer.
+Serious article event also where line let serve.
+Language out practice back teacher.
+Blood go property authority.
+Population message accept.
+Certain later far program.
+Discussion glass recent can series.
+Home heavy feeling far learn.
