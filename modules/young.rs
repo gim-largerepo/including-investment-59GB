@@ -1,12 +1,11 @@
-Believe statement positive debate discover sort first lay.
-Now music too theory Democrat.
-Certain according least husband life school money.
-Area road heart sometimes product.
-Treat hear test son.
-Debate success ok way month lose.
-Trip computer four maybe.
-We on middle choose Republican.
-Color near charge tough thousand.
-Approach data state country letter through.
-Staff make source computer company.
-While exist Congress.
+Product customer region.
+Whether next know himself fear here.
+Find fund standard article.
+Pattern growth court see.
+Arrive treat nearly state two.
+Various network seven.
+Personal size news music throw ahead.
+Future recently not.
+Performance hair building card pretty material.
+Watch simple international although left.
+Those thus early.
