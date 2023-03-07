@@ -1,0 +1,1 @@
+Chance meet main character they plan amount reflect.
