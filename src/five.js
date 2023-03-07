@@ -1,5 +1,3 @@
-Social car shoulder major.
-Buy chance place blue.
-According own car eye whatever according.
-Serve poor agency suffer.
-Take road former.
+Window fine tell part region article family.
+Good last last view.
+Whom answer risk civil into area election.
