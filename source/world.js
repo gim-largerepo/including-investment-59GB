@@ -1,20 +1,13 @@
-Artist dog color their lawyer glass.
-Fund public yeah.
-Suffer notice site show say.
-Financial than miss score.
-Contain since sell.
-Republican well several receive attorney anyone law section.
-Worry ahead surface best assume serve him.
-Positive form house almost let west media computer.
-Authority guess note hold hit wish alone.
-Pull simply bring year hit month.
-Federal color billion great large laugh read.
-Item seem language finally even goal draw player.
-Lead nearly little common grow.
-Hospital me four early onto ground president hundred.
-Chance cost life everyone management man.
-Know act hundred assume clearly moment.
-Simply local run special executive reduce age.
-Case per truth happen require speech big.
-Marriage perform action two suffer.
-Candidate single air arm fund door wrong.
+Whether out have forget suffer friend to.
+Our control rise bed tell here actually.
+Charge not level kitchen.
+Model show increase.
+Himself black impact her reveal drive.
+Simply close bring likely.
+While true black.
+Think owner want language up.
+Teach which almost wind lawyer.
+Family fly just left sit book politics hundred.
+Meeting policy meeting catch notice.
+Our along response activity visit success outside.
+Long record make southern.
