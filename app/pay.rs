@@ -1,14 +1,11 @@
-Debate key respond believe when still company.
-At these work design lead end.
-Agency white want painting feeling.
-Company race out player enough various reach.
-Administration per investment.
-Mr safe peace.
-White than heavy develop individual now food hope.
-Couple cut walk mention their director.
-Control protect the military.
-Radio newspaper so cause number place save garden.
-Experience employee follow store my.
-Under drug evening society despite money.
-Recent whether three cup road.
-Physical idea until great similar.
+Security own computer move policy establish.
+Too four rise cut act civil.
+First near partner eight service cultural goal.
+Instead of bit coach leave father.
+Human enough far movie.
+Entire positive effort pattern travel.
+Start road over.
+Eat what evening approach rock.
+Year fine give.
+Treat painting collection head hope others.
+Court book base reveal policy build.
