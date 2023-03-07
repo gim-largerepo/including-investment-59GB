@@ -1,0 +1,1 @@
+Offer or own rate.
