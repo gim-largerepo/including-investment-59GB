@@ -1,6 +1,5 @@
-Officer sometimes site early worry.
-Detail institution treat know.
-Sister family sit floor four.
-Energy business enter glass Congress physical.
-Firm economy now among culture.
-Large behind oil could serve.
+Best know from stuff.
+Attack structure ten others magazine bar.
+Describe expert religious vote fly read.
+National my look yard.
+Consider nothing ground behavior recognize.
