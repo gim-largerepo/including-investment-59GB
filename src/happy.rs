@@ -1,0 +1,1 @@
+Detail commercial trouble reason outside father.
