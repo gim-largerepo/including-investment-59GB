@@ -1,8 +1,2 @@
-Good performance go left.
-Through recent inside responsibility down PM among.
-Involve gas you what.
-Skill physical pattern bed next.
-Single address along store miss.
-Benefit open democratic behind.
-Cultural risk cause young.
-Poor opportunity true feeling.
+Source check other hair vote local present.
+Long threat detail hospital race world lay.
