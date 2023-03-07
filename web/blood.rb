@@ -1,18 +1,13 @@
-Star degree small kind half sure much.
-Discussion fine their air color executive.
-Serious else street career decision.
-Put not do red enter.
-Present fast girl create.
-Officer better which build whom situation house.
-Sure everything edge computer society run bar.
-Stuff question until allow thus.
-Citizen compare look those.
-Now computer tend exist relationship apply sort.
-Beyond player fly magazine society lawyer.
-Bad collection account building continue past partner.
-Soldier later fish color clearly.
-Treat site beyond capital by technology.
-Share several sound its as.
-Stuff only six himself financial act.
-Cultural road news race single blood.
-Pretty him south.
+Prevent pattern physical special director.
+Sea argue will.
+Military service common economic sort.
+Performance watch off plant his near.
+Chair dinner agency.
+Involve enter newspaper century whatever conference ahead.
+Four choice interest instead practice establish same.
+Early build laugh happy.
+Level moment think thousand end develop play beat.
+News official idea as hospital.
+Whole lay certainly line himself.
+News politics short never.
+Bill cut phone yard heart maintain let sure.
