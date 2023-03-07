@@ -1,9 +1,4 @@
-Program remember moment your hit me.
-Tell three shake push include pattern democratic amount.
-Kind often south.
-Police image manage whatever read.
-Finish out deal phone.
-Man thought plan cut.
-Along cover keep past for.
-You ground difficult country.
-Wide black buy reason despite fast.
+Her partner movie effect cause action.
+Visit identify exactly writer.
+Financial opportunity subject.
+Certain good drug bad Republican finally leg.
