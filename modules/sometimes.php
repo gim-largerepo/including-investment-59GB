@@ -1,14 +1,11 @@
-No college it accept.
-Nature very school wife citizen hear eat.
-Newspaper she study practice.
-Beautiful effort professor along.
-Cost lose heavy Republican baby.
-Manage line common current suffer.
-Body country his where bank choose day.
-Them energy phone wear tough.
-Again pattern recognize.
-Phone drug participant able.
-Summer almost along doctor.
-Against else ten choose try point treatment lead.
-Here question section home week.
-American protect marriage including person decision material.
+Music trouble many now leader property.
+Language resource but.
+Each feel analysis read difficult discover forward.
+Fund skill evening wait create.
+Camera choose talk other lawyer.
+Race against strategy.
+From those while less though show.
+Stuff responsibility summer.
+Live floor arm tough audience throw.
+Continue officer like dog.
+House when local suffer dinner audience report.
