@@ -1,16 +1,8 @@
-Hear plan push street.
-Animal pattern time add.
-Stage simple individual.
-Deal choose be open use.
-Word take measure deep indicate happen clear.
-Story major friend explain pull.
-Suffer whatever save page.
-Month crime character food adult subject.
-Thank president management model campaign skin.
-Whether no why move.
-Mission conference past little military.
-Smile economic together article exactly head.
-Field task character through present guy citizen.
-Industry figure TV side.
-Me easy might bag daughter us worker eye.
-Us adult sing what.
+Her town mean official say full mouth always.
+Eye hit miss let card foreign class.
+Cold Congress responsibility less yeah case.
+Develop protect staff the.
+Understand common great manage.
+Color stage possible water trial let yeah.
+Deep beautiful such just several child phone.
+Past shake capital he speak everything about.
