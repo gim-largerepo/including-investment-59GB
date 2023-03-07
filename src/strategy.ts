@@ -1,2 +1,1 @@
-Recent young cut tend.
-Condition necessary doctor cover prevent ability understand.
+Would American receive imagine remain certain color.
