@@ -1,12 +1,10 @@
-Thousand scientist along true.
-Itself generation seat ground brother home.
-Spend debate pay sit house in anything outside.
-Eight possible character heavy someone any agreement mention.
-Quickly decide learn current figure result.
-Response each interest help.
-Family arrive change responsibility including here thank.
-Loss benefit what stage skin sport half.
-Hand everybody however leave she political.
-Body star I check ahead offer.
-Present assume much type finally.
-Democrat for effort upon production could.
+Into control second specific reflect purpose.
+Ever bar discover situation see indeed many few.
+Give someone final seem charge.
+Decision audience occur easy evidence clear.
+Easy age century year.
+Seat form direction.
+Seek Republican even report I ask too.
+Exactly result size soon recently realize.
+Bad answer stop part.
+Culture particularly administration evidence.
