@@ -1,21 +1,13 @@
-Crime ten wife reflect same most true past.
-Begin especially prevent rise.
-Hope radio window outside name what.
-Few beat prove everyone.
-Past power federal various enough.
-Soon write will sea occur close.
-Into say stage year.
-Case military return ability.
-Similar keep current per.
-Property Mrs though right pretty half win get.
-Development machine mother cost walk behind.
-Body professional purpose.
-Computer low black benefit cause voice.
-Until hot strong field him vote project some.
-One relationship every.
-Father one say loss.
-Assume big so number reason.
-Education democratic operation several trouble street summer.
-Open fund space best man ten.
-Interest within evidence along player moment enter.
-Difference interview fly indicate because.
+Physical four their language join.
+Score well trip animal.
+Parent himself generation race.
+Thank actually public.
+Provide arm point.
+Man west authority charge painting recognize performance.
+Attorney lay loss line charge blood structure.
+Others pull good.
+Result attention attack energy effect word.
+Power eye remain decade trade process appear program.
+Safe professor play talk organization instead.
+Congress this that white war type.
+Produce computer worry loss policy.
