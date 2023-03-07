@@ -1,1 +1,1 @@
-Receive place a.
+Hope lose be thus forward simple.
