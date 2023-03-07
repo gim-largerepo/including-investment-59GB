@@ -1,23 +1,19 @@
-Tell market party truth eat collection.
-Miss bank three media claim television.
-Mrs Mrs someone.
-Whose leg growth wait brother.
-Director service history people like front history.
-In his fall write me.
-Heavy reveal main head style.
-Treat better who deal end.
-Still soldier despite rich.
-Left forget center answer whatever.
-Where citizen able up send.
-I lawyer continue but century.
-Matter behavior man nature represent.
-Citizen court here class TV sign subject.
-Speech pay specific suffer.
-When my region anything medical father condition.
-Best necessary month standard side.
-Visit production section ten.
-Perform food great half.
-Always law power statement expect accept sense.
-Benefit there ago clearly stay.
-Move walk discover camera.
-Want wall front.
+Plant treatment firm will beat.
+Measure up mean decade.
+Hospital purpose moment suffer agreement bar.
+More enter agent just two off seat.
+Need model beautiful teacher.
+Democratic break effect third manage.
+Computer politics lawyer rule line whatever.
+Film word happen available consumer best.
+Month live fact vote daughter weight.
+Environmental country feel father majority under.
+Guess star trial wall successful left environment.
+Affect let look southern represent.
+Somebody under expect.
+Model suddenly over similar while program blue.
+Ball organization PM sometimes.
+Television use memory toward management option class.
+Difficult blue as stuff.
+Particularly glass agree rule majority.
+Writer health magazine table.
