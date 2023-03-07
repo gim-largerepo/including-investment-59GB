@@ -1,0 +1,1 @@
+Gun short face vote arrive boy allow range.
