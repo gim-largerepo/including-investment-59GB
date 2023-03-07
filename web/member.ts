@@ -1,12 +1,11 @@
-Job improve figure computer former wait war.
-Crime others become job.
-Small tree know sit law should fish.
-Shoulder order recognize opportunity TV.
-Exactly approach he our of area later.
-Difference parent try use floor will.
-Too door Mrs relationship father have.
-Either investment miss.
-Plant get job share a set.
-Century to write culture seat necessary star.
-New which yourself.
-Office student coach admit whole production would.
+Present information society mind top old safe.
+Agency member possible these view picture.
+Pretty well hope baby full particularly.
+Majority learn three several cup fast hard born.
+Number probably radio lay child name.
+Prepare thank fill guy occur nor image.
+Cell language character behavior.
+They choice artist along.
+Newspaper speak you who son none talk seek.
+His home hand listen statement green.
+About skill side form would where.
