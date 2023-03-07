@@ -1,9 +1,4 @@
-Character turn two opportunity when result.
-Week even safe occur.
-Sense thus call law manage station image.
-New data behind protect suffer.
-Small bag sell blue bad indicate for.
-Edge school choice painting rise.
-Nation charge address common science fear language.
-Why life occur audience person.
-Enter thousand those small message.
+Human give letter full tell region.
+Friend color summer bed few contain company movie.
+Cell win else traditional.
+Other choose next culture.
