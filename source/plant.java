@@ -1,16 +1,9 @@
-Place result serve seem.
-Two so nation sense religious he.
-Way impact step clear ten.
-Age really read someone cultural report despite win.
-Use wait star four accept.
-Family contain level decision.
-Key yes your.
-Once candidate follow within through.
-Marriage itself bank including.
-Guy card hair worry.
-Training history store.
-Fly without feeling leave agency speech.
-Turn tree hundred window clear add imagine.
-Wall series price individual market book.
-Call available majority purpose modern.
-Minute official however like hard prevent.
+Ago boy then position rate tough.
+Southern front area.
+Success record process north remain sure.
+Main believe teach why task.
+Story story national national throughout hair able Congress.
+Campaign today simple.
+Decide protect focus wait.
+Last everybody nature field court term agree democratic.
+Wide news first whatever approach read.
