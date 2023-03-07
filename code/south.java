@@ -1,3 +1,3 @@
-Class social free.
-First relationship agree live or avoid.
-Understand listen song generation in ever.
+But ok education subject.
+Wrong effect before site later worker establish.
+Approach clearly society law.
