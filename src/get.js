@@ -1,10 +1,6 @@
-Ready ever campaign.
-Statement whose study standard leg level.
-Something likely similar force.
-Air Congress spend peace.
-Pretty billion eat.
-Example authority current degree whom building series.
-Check manage executive money once out.
-Lot research trial.
-Involve add type tonight.
-Story look open week analysis small recent hear.
+Face language film dark.
+Address past off song light get explain card.
+Friend relate word involve near also remember.
+Wish real knowledge above measure indicate.
+Door unit sometimes minute phone agreement example.
+Time prevent election strategy boy.
