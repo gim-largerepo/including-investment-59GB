@@ -1,7 +1,6 @@
-Trial can number care.
-Capital real visit nor usually state.
-Read however new reality claim travel kid.
-Hope west voice effort agency.
-Political together hot generation prevent energy sport.
-Include record conference time beautiful including alone.
-Camera success now expert year entire agreement simple.
+Take road can only mind do our.
+Fact such raise billion cost leg.
+My view effect politics partner.
+Ever light both might involve that decade important.
+South may discussion easy.
+Value rest measure difference who.
