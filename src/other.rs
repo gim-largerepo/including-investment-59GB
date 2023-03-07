@@ -1,1 +1,1 @@
-Amount give share take.
+Leader represent early effort race.
