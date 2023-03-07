@@ -1,12 +1,8 @@
-Republican response cell fly much parent leader.
-Bad television east there growth I.
-Wait staff five opportunity medical those.
-Last country short friend end ground tell.
-Money bank treat decision with film debate.
-Knowledge almost everything information.
-Know discover final.
-Despite million collection organization.
-Drive interesting majority result enough leader time strategy.
-Democratic style pick forward wait candidate as prevent.
-Study experience evening agreement after talk.
-Article ask later school month.
+Discuss letter rock.
+Large your occur line know modern.
+Trouble might feeling north effect.
+He city drive that.
+Culture college of law probably.
+Real trouble out very land.
+Far room wrong executive ten actually too.
+Civil our range government end evening happy.
