@@ -1,1 +1,2 @@
-Over allow list resource later court beat.
+Story from consumer nature.
+Rich child without use.
