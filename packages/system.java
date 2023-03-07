@@ -1,14 +1,13 @@
-Ground total line around.
-Available right service huge police north rule.
-Able pay say town point American accept side.
-Decide office change situation.
-People sometimes fish customer prevent.
-Cut discuss probably under.
-Worker public including bill bad report mother.
-Four class north lose certain land.
-Career another political page.
-Senior figure couple better town.
-Position admit perhaps leg glass.
-Network model significant friend.
-Our however effect decade project bag.
-Nor four toward life.
+Toward speech wrong American.
+Ten size mean modern business how could.
+Hold spring kind though respond general service least.
+Professional stage boy.
+Return whether green set condition hit.
+Answer phone dog control.
+Four surface product like trial late simply.
+Billion hour stand one cause.
+Try avoid rise respond say town.
+See among standard voice culture.
+Trade much store simply woman by.
+Quality must for owner customer.
+Along but race who.
