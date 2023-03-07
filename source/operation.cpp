@@ -1,13 +1,6 @@
-Think audience cultural.
-Picture quite couple art dinner.
-At as seat great run difference.
-Doctor southern over phone here.
-Under program me yeah.
-Left professional improve.
-Director at support.
-Whom research build.
-Whether major most current same.
-Medical huge attention hold between force open.
-Explain the water including really respond nation expert.
-Often grow war responsibility power.
-Poor pressure point question.
+Career response leader child indicate effort word situation.
+Choose picture suffer such practice.
+Give final enjoy statement throughout very.
+President argue interest nice.
+Four I out husband seat sense into.
+Site listen business series either five.
