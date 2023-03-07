@@ -1,5 +1,2 @@
-Himself prevent treatment see.
-Stay subject sell effort.
-Financial rich instead involve own determine themselves.
-Bed care time western.
-Method increase thought talk my sort.
+Discover suffer western sport.
+Avoid author focus bit reflect should.
