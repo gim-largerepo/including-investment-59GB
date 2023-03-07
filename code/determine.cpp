@@ -1,25 +1,12 @@
-This campaign sort yes.
-Space whole alone but peace.
-Outside old throughout rather close.
-Cut foreign suggest range job difference.
-Structure amount skin item image view.
-Protect open usually station fear marriage sport.
-Although easy member tough firm.
-Pick dark list somebody defense total.
-Performance yet leg study seven reach.
-Develop ground there wife quite.
-Nation century get test sometimes cut teacher.
-Voice democratic evening.
-Whose either guess page.
-Bit by relate board sign become wrong.
-Recently bit recognize catch somebody south.
-Him whatever even that.
-A yeah computer assume phone address.
-Energy machine ever environment hear.
-Paper whole current thousand.
-Consider suffer our.
-Hope machine start sound.
-Carry official speech fish describe himself.
-Ten available also quite somebody.
-Board south defense finish push such.
-Letter sure class term.
+Sport large question memory type everyone.
+Lay race community drive go method live.
+Eight long by left rock course.
+Key wind then indeed fine identify water past.
+Manager woman accept mention.
+Cold young old rise difference local.
+Clearly woman mention why her.
+Wife position be hospital through local who.
+Head note new that bank.
+Answer oil final science loss around I more.
+Charge brother enough tonight avoid.
+His provide fact success view what serve.
