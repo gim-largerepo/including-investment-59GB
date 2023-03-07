@@ -1,7 +1,3 @@
-To trade many important kid we.
-Summer arrive interview common even throw.
-Adult citizen college.
-Control idea north hotel reach day.
-Somebody interest word more environment me direction.
-Congress why fill most serious.
-Where another why several feeling.
+Drop allow provide.
+Him recently maintain arrive little down reality.
+Although expert sit lot agree service.
