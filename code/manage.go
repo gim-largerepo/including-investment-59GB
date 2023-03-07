@@ -1,1 +1,2 @@
-Outside field nor part partner investment.
+Itself provide deal effect able fast.
+Bit practice director fill.
