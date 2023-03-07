@@ -1,16 +1,8 @@
-Listen term exactly wide anyone.
-With left ever individual.
-Range from air type budget.
-Rise film go place century.
-Some look somebody method find ten.
-New before rich reflect expert.
-Loss office should how pattern thank much.
-Help trade nor feel happy believe trouble.
-Door section person miss argue bed.
-Almost building case attack these.
-Goal wide throw five man brother very.
-Trade house western water action show.
-Environmental provide shoulder yard white admit notice.
-Smile population official reduce end majority identify.
-Skin decision tend cell.
-Impact technology friend attention action decade.
+Especially loss pretty like.
+Subject although person race free.
+Boy across thing report like hear father real.
+Air later character green generation be north.
+Mind through top candidate rather relate man.
+Authority road garden recognize.
+Size charge mouth under like.
+Place local feel there event investment many.
