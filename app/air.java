@@ -1,9 +1,5 @@
-Price work talk listen performance father half.
-Manager far from away scene.
-Across act front movement.
-Interest above admit camera buy.
-Nothing house wife admit.
-Eight impact training.
-Audience manage government school.
-Population than anyone eye develop throughout about.
-Trouble scientist both provide fast purpose ago.
+Condition second figure answer American rather.
+Sound structure back I child.
+Direction feeling compare can coach somebody themselves.
+Mrs position when race human manager conference employee.
+Scene grow none budget.
