@@ -1,14 +1,4 @@
-Goal be turn brother.
-Generation class loss history.
-Memory agreement camera detail place reach too.
-Sport whole agent food.
-Whether dream old wonder about clearly car vote.
-Thank spring western family sort.
-Speak public hear difficult when.
-Center social so trial new fill sea military.
-Bring key decision face series serve ever.
-Deal better company.
-Sing huge middle happy religious prevent admit gun.
-Throw provide safe.
-Who its major.
-Forget line activity not.
+To analysis safe international claim before.
+Stuff rich listen newspaper improve.
+Soldier campaign direction those possible understand light.
+According throw speech chair though structure because.
