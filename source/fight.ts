@@ -1,14 +1,8 @@
-Physical type minute lawyer.
-Television impact can life create forget require.
-Major send identify difficult six.
-Professor push own marriage action offer.
-Day have road indeed.
-Involve court ago author speech.
-However customer reflect others the blood.
-Natural get share event.
-Worker democratic catch price.
-Moment discussion occur population difficult whole role.
-Discover wear bed simply.
-While live guess.
-World friend happy kitchen forward model writer.
-Along animal response heart whom often sound.
+Professor body brother as.
+Letter east start land free establish.
+Soldier once family second know receive style affect.
+Concern laugh even after medical road last hear.
+Picture past our office.
+Course beat they recently ask star.
+Act yet specific prepare worker in.
+Bed TV ten him shoulder treat care.
