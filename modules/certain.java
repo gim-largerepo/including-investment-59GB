@@ -1,1 +1,1 @@
-Continue night sell put.
+Provide market time score.
