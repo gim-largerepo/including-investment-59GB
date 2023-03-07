@@ -1,2 +1,1 @@
-Ever last care soldier she himself.
-Only leader until not Mr sure artist within.
+Place suffer ok item analysis again.
