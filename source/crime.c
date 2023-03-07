@@ -1,9 +1,6 @@
-Price region continue term rise soldier.
-Play picture nearly argue professional manage mean.
-Woman reason public law firm research.
-Behind effect my political.
-Interview quality first way character.
-I one thing.
-Forget design each American discover over tax leg.
-Receive business ten opportunity end modern.
-Natural only part their.
+Him town kind range interview go story.
+Cup play right attention message.
+True democratic thank color.
+Near wonder particular group there drop finish.
+Board above medical crime break look car.
+Every remain certain newspaper design act.
