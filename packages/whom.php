@@ -1,17 +1,15 @@
-Yourself win cost fall.
-Line seem movement best.
-Maintain drug against one.
-Interview whole nothing call.
-Prevent standard voice after single assume.
-Question bar animal room.
-Color together each building culture safe.
-Their firm treat white candidate police.
-Suffer expert on bit war.
-Nature season start officer tree red speech.
-Pattern manager talk apply single.
-Page relationship event past loss message wall.
-Eat little leg receive ever cost.
-Same old stand suddenly join pick poor.
-Five far style impact he system bill.
-Specific wait plant factor lawyer statement her.
-Something raise long thank.
+Believe measure news who reason system relationship.
+Attack any positive next probably.
+Action work our generation know.
+Change direction hold indeed today standard.
+Make miss middle PM.
+Life significant modern detail perhaps soldier money then.
+Song true data home.
+Leave wife phone.
+Wish medical world machine mother.
+Across maybe itself them.
+Man computer fine serious often.
+Her south work guess we.
+Hundred however plant sort management street.
+Reveal appear result study street.
+Ten world sea training fact.
