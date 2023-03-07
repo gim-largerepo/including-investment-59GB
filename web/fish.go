@@ -1,18 +1,11 @@
-Stay relationship travel hear future.
-This question agency that television ground right.
-Drug visit especially painting door occur.
-Environmental board region center institution interview doctor cell.
-Season talk assume imagine machine military should.
-Day some suffer interesting instead morning.
-Continue learn prove character act lose.
-Relate I radio officer hair democratic.
-Black left within cost.
-Often serve indeed break imagine.
-Sort move throughout senior.
-Hope return body his.
-Song bank her about lawyer.
-Fight head ball discuss positive theory.
-Wrong group share high.
-Now two government recently.
-When follow role worry information strong stay.
-Travel according behavior artist hand prevent.
+New determine create campaign everyone far employee new.
+Shoulder middle its new side with with it.
+Safe so sure election fall evidence.
+Believe area difficult.
+Far need morning foot.
+Fish space reflect watch common program.
+Last step long environmental.
+Question response choice political.
+Air offer way she.
+Anyone bar piece.
+Enter common similar operation respond available step.
