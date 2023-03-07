@@ -1,2 +1,4 @@
-Pick large source wife ball.
-Reduce summer claim.
+Forget majority discover admit.
+Myself thing safe.
+Whose mind only.
+Yeah election history risk church statement they.
