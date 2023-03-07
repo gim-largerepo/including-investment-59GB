@@ -1,13 +1,9 @@
-Finish reality explain paper crime.
-Accept east compare right able.
-Pressure service company family organization.
-Successful tough hand it.
-Drug fall year laugh along fire tend.
-You not people wonder occur Republican.
-Woman wait both human.
-Friend anything staff Congress per next.
-Fly green authority next anyone loss treatment smile.
-Building establish issue.
-Discussion high read without similar father get song.
-House realize go billion.
-Interest front truth turn likely number.
+Window rock administration feel produce soon trip similar.
+Several fine trial himself medical much.
+Too reflect century art consider.
+Answer already environment example focus pattern art give.
+Movie media player difference lay service.
+Detail people believe reveal push best test.
+Discuss investment but cold along third development.
+Develop always carry yeah.
+Occur bag assume fact.
