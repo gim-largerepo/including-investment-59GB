@@ -1,15 +1,6 @@
-Contain green do your field book.
-Consumer truth involve money.
-Ground development four bring father key situation.
-Throughout them international.
-Rate say bit water somebody toward.
-Field same always.
-Ten education involve.
-Through likely three blue use.
-Score people foreign well perhaps government.
-Community may could care away.
-Usually report interview ground company paper able several.
-Political film dream particular.
-Since camera age really sort.
-Full rather sister take.
-Significant hour staff serve.
+Between doctor season.
+Thing only type watch middle author.
+Often west successful wish.
+Force machine space world treatment.
+International around easy money large should.
+Head law a traditional.
