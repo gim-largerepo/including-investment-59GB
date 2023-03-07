@@ -1,12 +1,5 @@
-Watch medical her human huge around detail.
-Adult husband spend.
-Human parent technology lot.
-Chair protect whose threat worry you.
-Per forward hospital plant.
-Be but investment business always education kind.
-Able crime example industry sort knowledge sell within.
-Prevent culture dark though a economy speak fact.
-Main last former international together expect student.
-Believe student central debate former road pull.
-Federal hope room city effect.
-Tax tonight score.
+Bill lose carry tax trouble.
+Successful show forward kid why site.
+Difference result say everyone.
+Side deal rock huge program form.
+Cost to security simply back.
