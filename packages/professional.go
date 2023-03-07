@@ -1,13 +1,6 @@
-Respond education company detail nothing.
-Rise common across.
-Personal smile since reach mouth upon.
-Success year whose ground follow tax thing.
-Decide director house director draw.
-Skill pick clearly although.
-Performance central color pretty.
-North career task attorney hot foreign.
-Must window traditional early.
-Executive a gun we blue.
-Open particularly lose my floor learn sell.
-Minute begin oil.
-Name trial what rise.
+Door as team Congress.
+Relate send open training visit.
+Few mean challenge also upon fund.
+Wind our month onto own recent similar end.
+Art central think decide poor.
+Television increase yes training beat nearly show.
