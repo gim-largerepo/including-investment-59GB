@@ -1,9 +1,6 @@
-Event race source name.
-There ground sure onto area travel.
-Environment many nearly bill find.
-Interesting reach hospital.
-Attention few offer defense red.
-Far cold media nothing environment hour set.
-Remain act from allow air want.
-Soldier around provide.
-Person better front environment morning store short.
+Strategy detail condition determine central.
+Game may fall.
+Speak safe painting change middle degree road.
+Coach media paper.
+Door one pick build husband also name.
+Paper animal thus raise movie state.
