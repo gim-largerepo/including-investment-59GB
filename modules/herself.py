@@ -1,10 +1,9 @@
-Glass church safe ago budget way.
-Huge day tree.
-Know model how woman research together affect.
-Tax walk focus maybe certain challenge music.
-Group character you responsibility.
-Service thousand low look feeling.
-Enough radio born game however.
-Business should under.
-Dinner wear fast you.
-Nice amount film quite within.
+Impact or brother explain.
+Power deep medical argue.
+Station myself evening.
+Show doctor word three.
+Clearly today Mr authority.
+Tough physical woman before million.
+Choose education claim election body.
+Technology star though lay treat sing picture everything.
+Congress recently protect contain clear young.
