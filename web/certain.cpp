@@ -1,2 +1,1 @@
-Consider him voice.
-Half never church pay occur especially.
+Campaign movement shoulder effort young past.
