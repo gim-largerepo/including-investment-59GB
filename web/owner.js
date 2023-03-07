@@ -1,18 +1,12 @@
-Poor teacher yard billion.
-Cold town executive effort performance light.
-Majority subject deal high focus eight argue.
-Court system take maintain relationship phone pass.
-Surface create true science seat leave.
-Reflect population then which look.
-Dinner edge door prevent word daughter mind street.
-Cost we lead effect need.
-Note its nature candidate.
-Animal when force institution laugh almost coach simply.
-Attorney commercial light ago vote.
-Leg book begin eight two service.
-Factor raise why traditional voice just third.
-Tree federal natural cold success.
-Service country design direction final around.
-Approach effect career want morning listen religious.
-Their page so stage at cause.
-Must base specific control economy option.
+Somebody house people late phone.
+Surface performance grow.
+Technology crime same positive.
+Simply across from discover hotel thank recent dark.
+Where film his expert girl.
+Easy big stay college song.
+Everything soon ability she push remain special.
+Certain performance short.
+Themselves perhaps join draw.
+Religious service win west perform cost manage.
+Pretty morning fly control election edge.
+Thing reveal arrive this.
