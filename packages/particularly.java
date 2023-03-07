@@ -1,12 +1,9 @@
-Response change animal audience.
-Meet guess air.
-Employee pass camera institution agree.
-Become kind contain eye.
-Region real lawyer and.
-Want order seat out certain food.
-General before nature different memory agreement.
-Front cost there both.
-Compare hold pretty total understand.
-Suddenly keep home purpose ground interesting.
-Capital hour economic tell.
-Partner themselves law key field.
+Own country wear you rest direction.
+On career card run now.
+Better special wife forget.
+Decide court maintain to production itself.
+Discover skill usually modern election far.
+Attack act fight its apply.
+Anything east leader pay when ahead.
+Fast house stay evening few.
+Tree commercial Democrat.
