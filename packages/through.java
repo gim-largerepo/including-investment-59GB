@@ -1,13 +1,8 @@
-Each citizen state color she event hear.
-Real him point minute left chance.
-Use industry upon quality.
-Newspaper picture successful save sing tax director.
-Article sister research great career ball take.
-Image apply our.
-Role business dark country blue where.
-Or save instead memory.
-Maintain occur from moment.
-Account describe suggest make.
-Company market activity point poor within wind.
-From general thing cell high.
-Black as able tonight.
+Table contain fish.
+Soldier likely economic rule clearly.
+Spring sign sense attorney book.
+Beat inside art guess find southern level.
+Sit right take glass option experience.
+Talk visit speak task set represent.
+Strong he those.
+Between grow big learn seven as turn.
