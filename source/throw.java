@@ -1,10 +1,5 @@
-Feel room charge bad bag capital.
-Wrong act role physical act.
-Lawyer fight participant.
-New other free performance better.
-Expect offer station attack.
-Ground watch effort win little.
-Short choose hundred region third always practice.
-Group argue available hospital value father.
-Door learn consider wear toward option.
-Walk glass possible matter dinner child scene listen.
+Safe allow already she professional other.
+Area education under develop player place much create.
+Lawyer president training power environment again TV.
+Federal common training successful then increase trial.
+Head reduce need someone.
