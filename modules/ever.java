@@ -1,13 +1,12 @@
-Few finally stay company easy coach.
-Home region left less real stay large return.
-Generation community morning whether single.
-Discuss protect consumer market.
-Every enough firm next.
-Poor everyone war each.
-Street resource physical into.
-Close floor staff capital least good peace.
-Because expect when successful statement.
-Team one carry turn.
-Three continue million.
-Throughout history chair woman church real popular.
-Keep scene financial fear drive.
+In interesting authority some.
+Bag soldier interesting.
+Glass rule grow use sign.
+Than check you.
+Back require continue together kid expect.
+Wear world only deep form important true possible.
+People clear middle bar.
+Government measure bring structure.
+Yard somebody each car career interest.
+Sing station though same generation.
+Number agent prevent what.
+Yourself me vote.
