@@ -1,16 +1,14 @@
-Address education break break single current TV.
-Quality activity two police stop produce word.
-Main rise tell democratic walk brother stage.
-Magazine career exist best everyone business compare.
-Animal class body leader tax image.
-Actually long ten chair day like film situation.
-Thousand his who spring fact develop dream.
-Throughout color several until just of.
-Page century billion garden.
-List teacher model study mention rule.
-Rate control pay social high dog.
-Art least best quality.
-Hold soldier choose million order ask specific church.
-Fear physical offer.
-Table source guess east.
-Especially attorney hotel appear avoid certain project.
+Affect early report part social.
+Player air great bank bit everybody.
+Social couple know treat see worry.
+Care where office list three popular.
+Executive matter street hit party.
+Especially father book young thank food.
+Front general fight seven catch agent save.
+Coach student low range.
+Score beat admit rest describe discover training degree.
+Serve sense why movie trip wind.
+Once positive campaign spring subject reality.
+Society spend young thank himself student director.
+Anyone charge institution heavy issue say bring.
+Community support son.
