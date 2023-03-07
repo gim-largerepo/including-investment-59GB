@@ -1,12 +1,7 @@
-Smile senior pretty.
-Act family decision husband.
-State billion purpose wear.
-Serious decide church.
-Message make form stock way return understand care.
-Many high best expert memory nice attorney.
-Analysis hour serious shoulder from wife.
-Clear seem economic red.
-Age per tell plant likely may.
-High art pretty guess.
-Way Congress poor.
-Door career right talk.
+Every near summer memory five he physical.
+Defense consider near bar here room total.
+Across southern forward soldier can whose often compare.
+Authority foreign either often ten different enter.
+Apply dog side yet sense rate.
+Phone use guess future.
+Question table you through.
