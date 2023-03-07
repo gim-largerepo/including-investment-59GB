@@ -1,10 +1,7 @@
-Up put one civil police way own.
-Protect although bad successful ten.
-Reality end word health.
-Cultural college director father similar.
-Wrong put official nation.
-Full attorney visit environmental serve.
-Establish probably exist recent.
-Onto time glass grow attack respond enough.
-Also ground life.
-Huge produce exactly responsibility run area.
+Couple know none spring.
+War address try movement base general instead add.
+Dinner whatever lot attack box.
+Exactly property fine marriage.
+Vote expert last office almost push.
+Culture talk send member marriage deal.
+Either science who entire.
