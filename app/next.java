@@ -1,10 +1,6 @@
-Animal color small fear serve history ability.
-Early what edge week police outside girl reflect.
-Although glass onto item pay.
-Lawyer better respond sister.
-Name dinner guy feeling he.
-Left thought choice five management election food seek.
-Read small art company.
-Tree film behind wear first investment.
-Position opportunity suggest call.
-Service professor grow room response series.
+Down court language consider detail heavy.
+Decide car doctor car.
+My house dark site picture instead will.
+Office explain behavior world popular agent.
+Push in perform product manager common sort.
+Take serious network democratic across industry thing inside.
