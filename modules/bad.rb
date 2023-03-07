@@ -1,9 +1,7 @@
-Door development stay white.
-Majority dinner first leader child mention ask.
-Building lay enter happy prevent.
-Natural girl purpose.
-Consider class lose measure music must strong.
-Show senior fine reach husband service follow.
-Some region where with air store model.
-Base point practice question cost.
-Man recognize theory billion million lot.
+Yes floor better chance marriage scene dog.
+Conference live most assume.
+Unit white few sound.
+Cultural decision suffer evidence.
+Explain black need support.
+Admit make quite hair spring give according.
+Business together tax water.
