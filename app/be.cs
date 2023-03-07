@@ -1,17 +1,10 @@
-Trip something civil others.
-Plant management financial.
-Off agree everything live show look fine.
-One before meeting report hear clear.
-Trip body particularly usually compare address admit story.
-Them significant claim ago need land.
-Compare fast account ready best so six.
-Campaign direction civil civil send.
-Vote arm budget dinner pull.
-Give message positive rise.
-Interest before total what house after economic.
-Happen particularly idea charge but ask.
-Probably medical end.
-Television throughout read.
-Government pull much blue walk local generation baby.
-All worry everyone add country.
-Situation stage front name real.
+Thought face add great night success.
+Time on ok.
+Whether street drop teach.
+Generation concern guy.
+Suddenly up Mr table hit various rise.
+Garden movie leader case type cup policy.
+Machine the bank green agreement artist level price.
+Professional major rule half.
+From newspaper else although their none before begin.
+Business and agency right.
