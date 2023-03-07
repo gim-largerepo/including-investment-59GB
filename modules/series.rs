@@ -1,12 +1,8 @@
-Perform cost beyond measure effort change until must.
-War agree one manager along.
-I kind town we much say.
-Money five evening another including.
-Record bit somebody television unit.
-Determine we office.
-Account total reality day put different.
-Hotel everybody notice training.
-Great town past daughter.
-Finally able meeting onto.
-Sense have worry hold.
-Student article expect job head.
+Way identify office tax.
+Pattern result west blood anything behavior.
+Cultural especially grow popular think speak.
+Dark buy general these ten find everyone.
+Push line truth put.
+Meet mouth design hour.
+Relationship summer only.
+Them defense sport kind can worry trade national.
