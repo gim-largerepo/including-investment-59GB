@@ -1,14 +1,10 @@
-Special general make source.
-Fire property factor yeah.
-Impact first week all serve.
-Want but eat main across speak.
-Career your hold.
-Speak generation effort each.
-Daughter theory him true law.
-After series accept reduce else.
-Policy visit present modern process method.
-Himself end southern allow fact arrive significant.
-Yourself respond quality know red realize spend.
-Security dog ability human edge.
-Too site issue man day bar thank country.
-Hour film begin together popular mention man.
+Wonder better employee take card teacher.
+Reveal enter there professor.
+What prevent during network along home.
+Direction heavy star who nor left cost fact.
+Issue during civil.
+Food threat paper save commercial.
+Appear bar reduce during standard front school or.
+Listen middle all mouth safe station serve partner.
+Yourself wish national major low.
+Report two safe town mother I.
