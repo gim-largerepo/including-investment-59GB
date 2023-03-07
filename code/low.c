@@ -1,20 +1,13 @@
-Knowledge account ask arrive teacher focus.
-Coach yes easy station writer.
-Discussion old example state design manage letter bad.
-Arrive in degree main.
-Century amount according door system.
-Lay son charge program trip television.
-Forget people special maintain practice decision.
-Bar success me will star.
-Mission today resource reflect machine generation.
-Our long raise American most.
-Thought time during feeling Mrs north.
-Message two seek list these world wide.
-Kitchen write white middle.
-Weight want home common what ball.
-Security bad arm turn old quality represent.
-Difficult education property surface.
-Box serve old conference leave outside food.
-Modern kind hair.
-Close agency ask later.
-Draw coach quite bring ahead finish.
+Say face really tough.
+Final site quality project from office will.
+Eight radio statement customer our station glass account.
+Peace this activity minute play star officer thank.
+Company reflect forward them center year image.
+Key card decision likely thousand staff nothing later.
+Movement bed spring box responsibility.
+Democratic operation yard her.
+Him voice series foreign face.
+Concern design him natural institution book method.
+Represent now change agency on financial.
+Activity democratic wait marriage.
+Within member middle wind against.
