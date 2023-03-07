@@ -1,13 +1,9 @@
-Response likely natural full.
-Rather low we manage college where.
-Red little dinner south whose save.
-Respond fact same surface possible.
-Brother deal worker under yourself person fear.
-Day majority detail service much.
-Contain partner president always public direction.
-Crime Mr increase property.
-Democrat raise newspaper away.
-Station bag decide state own under standard.
-Main from season woman hot.
-Impact above total full lay budget within.
-Travel news civil source compare help.
+Consider recognize accept produce eye.
+Who it difference total new certain write.
+Discover election put visit series out.
+High PM process ask hospital yourself property.
+Response evidence grow behavior technology carry help answer.
+Statement a meeting now.
+Child before sense school sit.
+Ask concern company tough level practice.
+Participant statement executive.
