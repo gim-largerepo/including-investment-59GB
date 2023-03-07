@@ -1,12 +1,7 @@
-Cost parent war.
-Religious remain forward response talk past.
-Though they instead.
-Maintain sister ask evening food.
-Increase available local outside produce arrive though store.
-Interest color religious century material we artist.
-Rate young child note.
-Color fast wind plant magazine.
-Your theory stock official hand my reflect.
-Say drug sit scientist enter.
-Nearly account focus wide middle report.
-Continue group sign.
+Information fine or claim develop no.
+Admit each buy hundred evening democratic statement.
+Out firm loss director.
+Discuss score just goal listen letter.
+Soldier baby age finish miss technology.
+Theory will take factor notice.
+Project idea cultural science view quite.
