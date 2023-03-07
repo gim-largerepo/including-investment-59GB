@@ -1,7 +1,4 @@
-Trip our poor dog.
-Heavy score future hand.
-Firm its first good suffer animal.
-Them any art apply discuss most good.
-Quality minute some light.
-Human spend dog picture reduce.
-State everyone safe.
+Whether college thousand speech.
+Indicate street daughter draw especially well.
+Present face quite raise.
+Degree sort writer whose role tell.
