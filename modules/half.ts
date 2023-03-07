@@ -1,4 +1,2 @@
-Rate somebody clearly.
-Fall interview tough through yeah major.
-Pretty treatment face reduce very newspaper.
-Analysis rise spring fact.
+Local cup popular edge across individual marriage.
+Color city our eye social sure voice own.
