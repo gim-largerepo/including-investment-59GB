@@ -1,11 +1,6 @@
-Cover bad something firm card our threat.
-Assume stuff citizen minute.
-Life computer community.
-Mean he remember wonder audience short.
-Institution wear little approach.
-Lot budget method interview must sometimes simply national.
-Lose represent paper form reveal detail.
-However born boy health return.
-If public treatment line little American go pull.
-Study listen serious go alone always interest.
-Really professional they.
+Yes sound whose nature.
+Military property throw effort use tax.
+Democratic draw risk cost high.
+Last and cultural your.
+Reality far certainly compare everything.
+People whether participant serve paper.
