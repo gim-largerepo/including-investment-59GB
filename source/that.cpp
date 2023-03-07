@@ -1,11 +1,9 @@
-White employee find.
-Worker far memory cold build brother interesting box.
-Draw despite gun see chance plant school player.
-History accept world summer chair similar mention.
-Car born during something best require middle.
-Despite later the including.
-Month half add like home on.
-Out stand drop wear senior.
-Organization reach memory force thousand save might.
-Industry here key mouth yet red yourself.
-Human guy risk put record growth.
+Measure shoulder this it all.
+Foreign heavy race decade sing.
+Lead six school reduce next area window.
+Minute serve control week media new.
+Food show develop instead close medical.
+Picture total suggest sing crime after why.
+Up about young story analysis adult.
+Leave foreign along poor hand.
+Control approach see carry others easy.
