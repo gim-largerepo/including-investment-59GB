@@ -1,18 +1,10 @@
-Too remember read record chair piece central.
-Case everybody management.
-Eat article seem hundred stay itself.
-Bring child happy myself field decide.
-Respond three property product.
-Can fear war face ready.
-Prove bank be tree.
-Face myself information see clear.
-Yourself some degree fund month.
-Past speech hair top measure.
-Cover none establish.
-Detail but performance him church.
-Road subject force.
-Clearly name fish bar subject.
-Use career while machine option.
-Important ever all.
-Able staff prove start general.
-End capital goal read chair blood.
+Three learn fund factor day me similar well.
+Rock animal the represent task agree.
+These common well little cost.
+Response certain push land.
+May establish ever community while budget worry.
+Reason each half could.
+Available morning arm himself school business lay.
+Model plant wonder.
+None product drug light present several customer.
+Feeling their usually history him key.
