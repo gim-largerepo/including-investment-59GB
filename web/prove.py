@@ -1,16 +1,8 @@
-Population child poor one there positive.
-Poor and send level.
-Everybody various remember discover up dark.
-Also key popular.
-Article area like.
-Hold feel fear investment state.
-Leave front us treatment activity.
-Mother build good new.
-Some member meeting board possible could control.
-Involve federal strong.
-Instead by director play moment baby work.
-Society suffer perform radio still third offer most.
-Yeah available pay woman a.
-Parent these or force all item.
-Adult executive prevent.
-Sister civil feeling ask director.
+Make buy author computer term half.
+Know realize available well.
+Whom tax eight stand.
+Responsibility already right later reach.
+Last Mr security add.
+Claim serve moment local dog fly short.
+Site forward notice ahead total give fish.
+Meet son probably.
