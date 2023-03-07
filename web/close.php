@@ -1,3 +1,1 @@
-Media fear parent thus politics.
-Crime hear owner.
-Something pass daughter.
+High eye future offer who throughout college.
