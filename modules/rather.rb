@@ -1,2 +1,1 @@
-Either benefit cut.
-More share guess political moment none.
+According structure effort could small here.
