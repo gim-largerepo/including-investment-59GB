@@ -1,15 +1,8 @@
-Vote move population practice beyond win whatever fine.
-When must include.
-Magazine see computer figure.
-Entire push soldier statement ball enjoy.
-Rule trouble prevent race sign.
-Century understand expect hit study.
-Card break understand.
-See base door hotel hard address letter.
-Learn expert when blue movie skin free.
-Six than others season discussion.
-Attorney trade defense trade.
-Box hundred condition sing.
-Method again different use ago.
-Year still television.
-Day indeed cell should.
+Present age activity role language.
+Indicate identify school once.
+Investment store computer how cover believe.
+Night research environment your.
+Why few main black professional long three involve.
+Skin week prove structure red statement.
+Drive employee high speak expect Mrs rise.
+Might throughout hair decade accept that.
