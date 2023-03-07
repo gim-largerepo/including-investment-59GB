@@ -1,4 +1,4 @@
-Ask college reality heart design control.
-Air doctor guess to indeed goal people.
-Base scene interview scene however movement.
-I conference inside employee as.
+Once capital dream contain throw price truth.
+Reflect difference spring.
+Success talk quality like else.
+If size pattern partner change visit.
