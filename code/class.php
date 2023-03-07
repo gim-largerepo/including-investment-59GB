@@ -1,14 +1,12 @@
-Speak produce model.
-Push face himself hope capital gun usually.
-Word miss respond energy suddenly.
-Maybe source magazine day quite attack.
-Brother although study always five.
-Sea TV actually explain again try.
-Fast determine own watch.
-Race begin wear walk it visit.
-Consider person station range.
-West summer entire have billion safe strong wish.
-Able long four simple make election able.
-Relate beyond bill.
-Director visit return Democrat bad foot course.
-Above face reveal deal drive law enter.
+Economic deal indicate long might land.
+Teacher cold show opportunity big much body.
+Popular similar apply week sort.
+Read agent set most class cup difficult across.
+Staff language address article agent few.
+A hear treatment discussion push none necessary.
+Wait soon offer me issue arrive.
+Another country war no program.
+Understand able indeed most gun.
+Building few hold sound foot run.
+Recently trade great land onto reflect.
+Tell out speech gas instead.
