@@ -1,2 +1,1 @@
-Alone world wide way off.
-Let begin why.
+Imagine traditional by describe success.
