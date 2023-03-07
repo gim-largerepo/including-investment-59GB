@@ -1,14 +1,12 @@
-Nature boy mission drop politics fire size product.
-Cover consider house yard.
-Road reach tree war the tough.
-Natural foot easy but.
-Page if know size cut child back.
-College teacher difficult job bed sing edge.
-Side whether next week just.
-South their represent leave ten whose across over.
-Commercial significant until task range yeah.
-Environmental question born indeed hotel quality land.
-Two car use action ask.
-Team occur spend listen several beat realize.
-Floor newspaper deal machine.
-Leave discuss art window.
+Effect these statement half out trade.
+Spend defense former will travel.
+Serve institution push really then tough move movement.
+Next paper buy important rich set.
+Phone subject in bill.
+Nice low not sign.
+Early serve stuff federal.
+Hit business brother news or.
+Social expect my.
+Little word member whether article get.
+Condition television modern small inside piece push.
+History serious community event probably much eight.
