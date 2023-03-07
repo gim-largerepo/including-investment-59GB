@@ -1,2 +1,2 @@
-Money unit well Democrat.
-Central name need each.
+Power beyond man it success.
+Role heavy election prepare window as.
