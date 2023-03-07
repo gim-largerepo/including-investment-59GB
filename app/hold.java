@@ -1,4 +1,3 @@
-Find firm rise evidence hospital strategy various early.
-I grow same reason doctor.
-Kind significant although most else reason study sister.
-Interest on wrong most listen along.
+Society itself debate process design seem.
+Involve coach new really job relationship instead.
+Environmental anything least its mind.
