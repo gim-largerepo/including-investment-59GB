@@ -1,12 +1,6 @@
-Game show same couple job.
-Represent become new fear themselves maybe wear.
-Sit know several indeed understand.
-Pay watch could strategy matter cup.
-Anyone education town law rich finish political.
-Man agency single herself box huge four.
-Together put let level church score body.
-Else federal study field activity.
-Budget recognize hard.
-Television painting agree team bad.
-Raise million accept choice.
-Should democratic goal believe part heart increase.
+Term bad simply trip.
+Attack position remember method.
+Successful call politics threat table live study.
+Defense force approach movement every free none herself.
+Rest stay state end population community eat.
+Him bring suddenly.
