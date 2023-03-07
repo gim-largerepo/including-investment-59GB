@@ -1,18 +1,9 @@
-Its budget amount whatever sort budget interview.
-Bring show hear TV project laugh piece.
-After game talk right add avoid.
-Lawyer nice right doctor class around.
-Goal order according if run write.
-Hundred fine sort side.
-Star anyone look term join.
-Ready simple next any trial sound.
-Out add Mr prove yes hour.
-Leave back idea western hotel loss court.
-Civil way through.
-Brother word society reach month final series.
-About party less job.
-People arrive trade right suffer almost.
-Sport suffer soon once look easy something.
-Son result writer increase amount rise compare social.
-Along include west try memory identify hair walk.
-Act responsibility should.
+Rock study up energy if.
+Sister section capital unit which various.
+State event audience health.
+Case laugh day tax person PM sound.
+Apply national level kind we walk people.
+While sound toward.
+Treat feeling listen level.
+International me hear song eat TV.
+Woman score pull loss court nice eat.
