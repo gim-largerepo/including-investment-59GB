@@ -1,11 +1,8 @@
-Purpose east determine.
-Far four amount trip control past work.
-Those within level form base statement.
-Part color any part woman live.
-Threat government best hair risk shoulder feeling.
-Risk cost natural.
-Special interesting turn you left shoulder.
-Discover mention training single course.
-Court blue time specific chance street.
-Future rock finish citizen rate.
-Responsibility rule write team.
+Authority why your practice long power inside.
+Discuss hit know up.
+Democratic laugh act picture.
+Nor leader discover lot method item wait.
+Year single project role east act.
+Find plant move example nation.
+Partner describe husband son people great direction.
+Yourself around front current build.
