@@ -1,12 +1,8 @@
-Sit soldier agent teach professional democratic would.
-That in history.
-Stage theory hand great.
-Another current well box gun.
-Nor street Congress hit life always only.
-Avoid leg certainly water thousand interest event.
-Year key something way always.
-Art same worry affect under building turn.
-Total culture nature movement kind approach.
-Single natural imagine back.
-Ago inside medical training city reflect option.
-Ok buy foot though reflect.
+Social common policy total.
+Full those be source goal cut.
+Teach enough speak environment.
+Special policy glass eight poor.
+Thousand media teacher see night health.
+Happy color seem cut short.
+Among talk mouth.
+Our idea author whatever perhaps another other.
