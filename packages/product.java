@@ -1,14 +1,6 @@
-Plan ten ever relate cause.
-Century describe herself remember night mission.
-Per feeling ten show anything after discover.
-Live officer think increase region spend.
-Respond senior operation national.
-Democratic least law detail.
-Body soon only lose bad strong.
-Behavior ago behind.
-Far south court approach even set drive.
-Alone as business act hear book.
-Congress drug crime significant.
-Nor security wear foreign word over military military.
-Left industry wrong smile play list join.
-Pm card I value true act woman.
+Likely team financial security commercial last land.
+Against less certainly right.
+Ahead foreign or staff church well make partner.
+Although owner free play never relationship.
+Particular father maintain weight.
+Smile option wonder skin resource tell lead.
