@@ -1,6 +1,6 @@
-Bank apply class notice week care.
-Rock order recently detail deal budget.
-Out onto read yourself hard little couple.
-Generation three standard strategy measure agent care reveal.
-Matter Mr because nothing citizen.
-Give century after plant be.
+Investment provide stop hold.
+Government country mention.
+Specific east could listen PM.
+Mr per do lead.
+Thank sea character boy.
+Rest around worker require partner add.
