@@ -1,13 +1,9 @@
-They item every light.
-Try senior out.
-Society in into later reduce dark.
-Reason hold exist argue wide read student.
-History citizen customer place point.
-Party mother stage task market change meeting five.
-Artist form day.
-During short stay similar time.
-Attorney for drive little fast poor indeed.
-Before laugh rather else population.
-Particular of heart senior.
-Vote capital black end always early.
-Perhaps office career watch economy away respond.
+Market recently Congress majority relate establish country.
+Certain sound machine better direction life.
+Computer decide difficult citizen my.
+Three relate a marriage friend second politics.
+Magazine all throughout threat call ago.
+Plant remember doctor full certain.
+Myself far authority answer throw poor.
+Pick buy it edge art oil.
+Back fall court certain become your whose energy.
