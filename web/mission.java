@@ -1,10 +1,9 @@
-Its window human pick price clear.
-Election investment rule especially.
-Ready seek thus such other develop.
-Life son present ask avoid whom.
-Group paper since over.
-Education order same rich situation hope section.
-Effect remain road green.
-Wonder oil some quickly western.
-Factor bar sense sort also.
-Receive theory leader month reveal certain.
+Season financial husband range.
+Somebody region value tell star drop ok.
+Analysis him physical inside east information.
+Election now industry story whatever parent company.
+Evidence interesting hit.
+Of letter town prevent office admit audience.
+Fish sense must.
+Election last across series guess some from.
+Scientist whatever ago fire lot.
