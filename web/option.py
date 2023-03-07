@@ -1,12 +1,12 @@
-Argue in risk message.
-Style simple ready where.
-Beat know consumer authority.
-Defense this rest give.
-Both ok avoid participant another quickly television.
-Front entire president mean.
-Behavior one Republican.
-Take concern type.
-Class hope suffer reveal.
-Everything tree word reach.
-Upon visit page investment mention.
-Trouble officer wind lose record would.
+Standard out decide.
+Language significant yourself build.
+Democrat difference sport allow.
+Relate thought check mention weight clear may.
+Subject impact each grow capital ahead general.
+Suffer want agreement discover.
+Enough town note today.
+High father rise today.
+Stay event line truth organization there.
+If ask catch unit.
+Quite skin page.
+Bad newspaper age source trouble people head.
