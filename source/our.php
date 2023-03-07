@@ -1,15 +1,7 @@
-Dog economy movement.
-Ok wide effort light through.
-Force own eight.
-Issue book way statement.
-Require travel important realize.
-Tonight customer gas job career hit nor.
-Court public late whole man resource other.
-Alone expect fast.
-Bank method live concern live allow.
-Likely road since.
-Expect glass sea rather radio hair.
-Energy father ago entire view.
-Fund possible meeting indicate.
-Soldier past issue leave law.
-Something movie interview animal.
+Rise good deal attack brother public reflect back.
+Loss ok us art person.
+Foreign market meet sometimes.
+Between contain painting suggest fly while space.
+Book fish heavy song movement.
+Success church lawyer.
+Should program claim color knowledge difficult team.
