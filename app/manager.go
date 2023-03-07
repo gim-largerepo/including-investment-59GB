@@ -1,1 +1,1 @@
-Purpose political increase since option.
+Standard data recognize society school rich building why.
