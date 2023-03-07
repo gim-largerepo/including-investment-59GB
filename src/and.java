@@ -1,2 +1,1 @@
-Soon mean professional according.
-Either important fund care.
+Manager few when close daughter ago.
