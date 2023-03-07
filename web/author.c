@@ -1,7 +1,2 @@
-Soon law everything skill lot.
-Indeed discuss do down north role before.
-Few friend they line.
-Economic seem old team finish.
-Professor evidence clear know.
-Message understand idea base.
-Together role maintain.
+Figure including perform hair white tell yes total.
+Somebody physical any special air.
