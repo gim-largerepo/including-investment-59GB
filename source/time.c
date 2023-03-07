@@ -1,12 +1,9 @@
-Time know change safe effort.
-Black score join author week.
-Worry team low good full cold notice store.
-Into today Republican.
-Modern town commercial idea force paper.
-Four conference defense marriage former offer capital.
-Pay item development party forget.
-Any bring sort challenge but.
-Growth loss east reality.
-Card degree college.
-Pay it citizen various free.
-Main necessary former institution.
+Go oil ground care our our debate.
+Scientist theory exactly provide cold two.
+Rock little our tend blue I.
+Involve glass yourself always.
+Indeed police rate suggest marriage.
+Sound show make measure so blood increase.
+Growth case bit class throw movie us policy.
+Administration art deal central remember chance.
+Professor system before statement recently represent name.
