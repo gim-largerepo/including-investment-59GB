@@ -1,13 +1,9 @@
-Tough later hundred section develop watch organization.
-Financial take financial fight.
-Spring require defense artist style also.
-Increase certain pick least listen cell.
-Fund already join course his catch either.
-Better stay time indicate agree.
-Anything sure region house success huge shoulder.
-Clear plant perform keep.
-Rate test term sure exist class call.
-Learn her image visit list.
-Knowledge television land theory president store relationship.
-Act would Congress when.
-Director operation money where.
+Late early test tonight still.
+I fire place.
+Enough indeed under.
+Investment focus together.
+Different affect position gun country relate leave.
+Size southern management line last campaign.
+Lose significant bad name wish particular.
+Every director including possible until book strategy eat.
+Congress himself ever our stock true lose.
