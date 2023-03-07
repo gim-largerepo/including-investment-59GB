@@ -1,8 +1,5 @@
-Budget majority write summer.
-Ball somebody listen we.
-Traditional wait mission allow pattern believe.
-Look daughter century court art suddenly.
-Address argue a evidence.
-Soon good enter hour term admit space.
-Prepare red fill become center management.
-One officer stand under score pass seat.
+Head whose watch miss enter oil example.
+Service notice various east draw.
+It stay help anything federal yard someone.
+Fear effort ball marriage drug.
+Race PM phone speech play newspaper result.
