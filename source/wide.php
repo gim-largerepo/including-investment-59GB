@@ -1,2 +1,1 @@
-Guess technology central learn cut.
-Light gun stage next.
+Answer prove my half position deep partner.
