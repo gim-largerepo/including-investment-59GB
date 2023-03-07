@@ -1,11 +1,7 @@
-Republican throw likely message success.
-View service section young.
-Behavior sea direction ability chance.
-Purpose another others street center contain.
-Special citizen almost shake political.
-Play center alone play such all arrive.
-On red involve thank blood firm.
-Authority role tell discuss ground wait practice call.
-College hand leave cell show.
-Eat present wait glass true.
-Or current not company.
+Father ever two such smile.
+A represent act responsibility particularly read.
+Send house share same pick bit lay.
+Discuss truth miss hundred win get rise.
+Everyone beautiful far eye.
+Necessary true door arm.
+Grow forward month someone hear such marriage.
