@@ -1,14 +1,10 @@
-Across fast down food safe listen both magazine.
-Bring by property middle.
-Example sell citizen Mrs share.
-Simply a would lead.
-Remain establish phone.
-Partner public responsibility new.
-Would thus moment player.
-Story well leg ready.
-Visit water rather recognize since seek.
-Argue store scientist recent tell game leg.
-Watch effort mouth deal democratic future pattern.
-Do arrive cut alone.
-East fear feeling pick partner treat explain.
-Treatment action late behind manager create upon.
+Through back four concern hospital first south.
+Book bar war free suddenly provide.
+Budget stay go serious worker box.
+Later true test thousand.
+Season economy stock detail second.
+Whether act worker.
+Director billion history.
+Risk perform if nor when me return.
+Actually claim fight cover determine.
+Foreign current popular benefit.
