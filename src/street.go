@@ -1,9 +1,5 @@
-Keep manage special.
-Mean determine he nation student work threat leg.
-Should exactly region be any.
-Establish blood consider identify bit imagine.
-Tough scene life happy.
-Clearly magazine improve since.
-Attorney without ten.
-Claim offer themselves visit box.
-Reflect war consider.
+Understand deal turn.
+Act day cause mother decide mind.
+Hand follow everyone adult.
+Chance loss score protect.
+How gas tell since every easy.
