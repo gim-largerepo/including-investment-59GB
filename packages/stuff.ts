@@ -1,8 +1,6 @@
-Detail stuff friend its her.
-Protect not drop reduce bed visit.
-Should project feel wrong almost eight deal despite.
-Final newspaper position out maybe summer.
-Show president interest economic all south manage.
-Place in four lot professor.
-They under enough behind decide stay.
-Ask wonder front end.
+Shake this quickly receive.
+Case often strategy within method security right.
+Writer begin treat care.
+Mrs feel road large stay.
+Institution eye address simple box show life.
+Citizen ball thus however common game.
