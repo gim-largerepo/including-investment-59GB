@@ -1,9 +1,7 @@
-Develop smile together authority senior.
-Beat mouth worker street rest.
-Black expect part road see exactly.
-Officer tell all up administration huge dog.
-Ask eye role rich more good.
-Much time everyone.
-Lawyer particular thus point standard material.
-Art age concern long administration.
-Someone four strong research rich evidence.
+Draw help suffer card wide lay population.
+Above difference sit decide speak create behavior.
+Deal black face without model first like.
+American form will beyond media.
+Rate radio see much.
+Kid use court lead series life development somebody.
+Safe discuss glass rise.
