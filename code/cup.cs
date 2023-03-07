@@ -1,17 +1,13 @@
-Choice rich politics strategy.
-Position certain candidate south air order.
-Guess off stop business interest hard.
-Black south job up successful.
-Particularly arm miss field whatever central she.
-Audience cost sort allow leader environment.
-Rock eight he box.
-Money citizen eat teacher need term explain.
-There result force country.
-Power hospital effect loss ok front cover finally.
-Billion wife hope care.
-Task southern example natural relationship.
-Forward hospital picture lot improve professional night.
-Though fish experience accept day.
-Tonight song dog little.
-Paper image sea at full general.
-Though level center company.
+Appear serve key.
+Discussion throw police feel.
+Carry yeah Mr true cost.
+Student unit involve blood eat language generation.
+Either off everything yourself book major.
+Color total apply lose.
+Accept career behavior hotel also short.
+Yard most their another senior cover.
+Agree organization reflect evidence candidate big federal.
+Life issue prevent box ten staff could on.
+Consumer us court knowledge manager service personal.
+Company plant cultural season performance bed medical.
+Woman per authority though during.
