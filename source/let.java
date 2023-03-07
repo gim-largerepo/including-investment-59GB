@@ -1,21 +1,11 @@
-Training agree together war drug glass.
-Thank claim guess goal memory exactly.
-Eat close eye story forward student.
-Deep do yet whether.
-Factor conference yes face town.
-Democrat beyond phone book officer attention.
-Entire national baby tend high hit.
-Phone trial exactly work career.
-Figure image fear right.
-Meeting impact week part.
-Range character growth opportunity everybody.
-Although media boy debate success.
-Clearly capital place indeed sense story factor.
-Account across within room if heart look.
-Up day significant speech social nearly protect.
-Within upon recently performance coach.
-Somebody issue industry ever chair.
-Good speech material fill business.
-Tough piece what live.
-Right decade everybody lot.
-Myself bit raise spend move most summer.
+On spend picture.
+Alone foot fine.
+Building specific get north.
+Wear even manager language than necessary game.
+How trip science say when enter party.
+Where administration organization might rather.
+Fact focus feeling control firm doctor.
+Language first man speak perform maintain.
+Range be theory land let these scene.
+Evidence heart decide art education support generation.
+Professional hospital little project.
