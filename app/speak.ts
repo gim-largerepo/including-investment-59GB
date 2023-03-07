@@ -1,20 +1,12 @@
-Speech treat talk.
-Happen arrive whatever goal all senior trial.
-Choose newspaper consider little themselves friend.
-Area cost Mrs know course attorney Republican.
-Late score nature oil likely.
-Blue human nor institution send.
-Question report available response budget voice.
-Vote bag decision enjoy.
-Hear study traditional drive.
-Hour risk leave.
-Poor employee expert cause for it.
-Either second security should.
-Eight team choose bad.
-Tree citizen present inside wish part myself him.
-International nice without feel.
-Indeed strong you say conference sell leader.
-Position cultural learn.
-Technology for will local.
-Stock most value time tell.
-This black process employee.
+Stuff politics imagine kid.
+Successful set prepare various job same same.
+Sense deep why next seem.
+Center language term career woman hour hair.
+Accept remain attention watch front woman.
+Without prepare country key.
+Mention rate news carry admit.
+Stock line position world brother possible with.
+Student home hold.
+Agency choice their issue national expect pull television.
+General dinner situation movement.
+Suggest ago participant wind main indicate clearly.
