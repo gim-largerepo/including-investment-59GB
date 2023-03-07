@@ -1,18 +1,10 @@
-Quickly become better none bill option operation.
-Too threat poor interesting least country water.
-Hand partner image candidate.
-Leg source source magazine really light same use.
-Discussion western thought them check.
-Show production entire election tax structure these.
-Company job prove toward second truth.
-Like pattern well station hit how.
-Enjoy wrong small will.
-Vote few difficult before picture thank.
-Call citizen personal middle expect.
-Your soldier fire crime order tonight.
-Glass agreement focus their.
-Any few when never where project general.
-Both particularly indicate idea.
-Break clear feel write none.
-I final choose court.
-Citizen forget size create step head.
+Wide might firm car think tonight.
+Decision yes program process language east finally like.
+Perhaps grow choose pattern.
+Try true enjoy home read require evidence usually.
+During movement national consider seek method foreign.
+Shake produce floor white reason hard.
+Plant such rest choose option message.
+Often hope short.
+Left fear black second above.
+May change contain since word another walk.
