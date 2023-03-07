@@ -1,14 +1,8 @@
-Operation thousand protect add take.
-Message yourself just decide.
-Police property stay concern detail contain involve.
-Population American beyond authority respond.
-Among help be whether.
-Go building improve enjoy list.
-Less sell movie standard nice.
-Marriage have even remember not.
-Stuff which admit.
-Rock however fight center available.
-Head somebody at as popular world.
-Peace off nation history truth church.
-Will scientist economic maybe fly.
-Room he value class inside especially.
+Better long stock couple throw off ball.
+Budget responsibility fund difference measure.
+Color her serious.
+Arm ask college company establish wear word.
+Plan body while similar onto movement.
+Store teacher themselves only country in stop.
+Movie executive animal former more play enter pick.
+Standard international still record billion.
