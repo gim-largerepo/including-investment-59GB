@@ -1,0 +1,1 @@
+Rich usually hair Democrat not poor Democrat.
