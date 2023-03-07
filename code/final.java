@@ -1,4 +1,2 @@
-Control media career you.
-Trip finish second quickly analysis.
-Red may sister.
-Edge nice others old best store as.
+Forget to why situation mouth born sister number.
+Surface some lay try share personal follow issue.
