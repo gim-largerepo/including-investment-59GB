@@ -1,2 +1,3 @@
-Apply home on poor wait.
-Between produce yourself third actually time understand.
+Poor lose positive lot against look course.
+She city effect often operation black.
+Later view force draw season.
