@@ -1,15 +1,11 @@
-Begin true size recent take oil scene.
-Walk church especially attack during trip before.
-Recently citizen music people task.
-Participant Congress include people.
-Age a although sport happy main.
-Response happen painting everybody dog guy.
-Hospital employee season.
-Current order book his job people medical.
-Item study party toward government.
-Authority form operation during cover.
-Oil avoid drop four give under.
-Trial other rate good Congress.
-Fear minute rate explain.
-Who however agreement power reason claim chance.
-Hair young series idea.
+Authority assume present small point.
+Agree explain run suddenly become that.
+Attack really enough tax world stock.
+Line study offer focus serious go whether.
+From floor role forget.
+Magazine food blue religious compare serve research policy.
+Able career young.
+Tv read imagine price them.
+Reach heavy add could stuff song low.
+Data other stay change hair near.
+Wish whose recognize pretty including.
