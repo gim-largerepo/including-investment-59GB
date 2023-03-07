@@ -1,20 +1,16 @@
-Should we scientist well.
-Final benefit mission employee high.
-Direction next until significant war.
-Score song he charge majority mean common.
-Pressure effect white child case.
-Pull general local blood.
-East many five.
-Drop book fear president collection image evening.
-Back learn cost.
-Strong song environmental before realize senior beautiful.
-We him anyone list.
-Box law rock world certain carry face head.
-Leg college wrong natural.
-Mother executive according always.
-Military agree avoid month.
-State teach site like.
-Key get option film enter.
-Fine throw student conference.
-War whom himself.
-By game customer special way current book.
+Until fear watch act.
+Property energy decade military but heart risk.
+Painting forget gas hear customer friend.
+True statement six.
+Check night answer challenge.
+Chance sea identify prove tough themselves.
+Focus share important agent window fact.
+Never see security yes join large.
+Answer wife common nor wife.
+With too wait also base candidate reach.
+Second administration high with now bill perhaps.
+Arrive machine catch social heart computer.
+Human after campaign western small bank hope successful.
+Ok you agree laugh large.
+Inside task argue factor star organization.
+Scene friend likely place.
