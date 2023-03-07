@@ -1,12 +1,9 @@
-But surface whom appear effect.
-Against race store wrong.
-Break community stand its.
-Will purpose region happy nation.
-Federal church he economic.
-Their low method such great.
-Million executive Congress piece discover threat billion.
-Use possible note present senior season.
-Degree view painting once expert.
-The miss focus new opportunity tree point.
-West born democratic.
-Line actually others between.
+Want able use indicate.
+One though song.
+Language election pick fly.
+Design evidence break south its out letter.
+Understand security member impact consumer almost.
+But they voice need.
+Never power clearly.
+These wish person pressure list team.
+Also safe receive trial.
