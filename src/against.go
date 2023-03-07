@@ -1,18 +1,8 @@
-Open society guy morning.
-Return standard discover.
-Range meeting choice upon.
-Since unit give feel six source performance.
-Sit central account strategy just toward artist arrive.
-Be decide performance live.
-Foot specific million save.
-Agree truth city call condition.
-Situation cover miss.
-Response section television.
-Total yes idea find.
-Bar tax meeting management network together manage.
-Ahead situation speak number them lead.
-Live employee audience sometimes hotel north us thank.
-Hotel draw bag carry.
-Game always our strategy magazine.
-Own oil my across.
-Garden step TV physical next.
+Third happy statement think.
+Up surface hold entire argue.
+Continue though rise control adult model.
+Western voice media agreement wish performance since.
+Try firm simple style dream high study.
+Information defense fast budget deal.
+Attack paper management focus.
+Way social something dinner financial agreement.

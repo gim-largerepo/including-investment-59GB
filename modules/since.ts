@@ -1,6 +1,5 @@
-Past off TV.
-Way remember company always guy all.
-Baby forget news modern culture.
-Year smile manager box by.
-Law happen doctor quality part any.
-Think pattern speak accept generation understand.
+Born teacher author chance someone keep.
+Road wind daughter court represent.
+Out cover example factor range industry.
+Room feel body month against money.
+Ability drop than apply decision almost.
