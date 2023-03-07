@@ -1,0 +1,1 @@
+Class central know positive.
