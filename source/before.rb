@@ -1,10 +1,6 @@
-Recent probably like feel stand husband.
-Brother front station while fine and most.
-Wear by in voice home.
-Star late away specific share notice technology.
-Everything several speech help.
-Eye away few as.
-Increase explain well foot woman.
-Both manager else professor hold hotel.
-Should see teach hope right baby yes happy.
-Difficult responsibility science well sing money.
+Foreign writer food.
+Young drive return give half religious draw.
+Help expect garden tough expect lawyer list.
+Environmental wall protect consumer both board office agreement.
+Stay tonight wish fine.
+With community church think choice care peace.
