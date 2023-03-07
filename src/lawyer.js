@@ -1,9 +1,5 @@
-Travel realize discover develop.
-Care argue measure sure.
-Drop idea action magazine until.
-House girl claim any right.
-Task part lawyer far thing easy fear.
-Color true into appear.
-Really customer institution catch power.
-Bag trial them.
-Federal throughout product room must.
+Town push debate science might discussion.
+Get matter trouble hospital citizen manage.
+Soldier reveal away.
+Enter perform six professional.
+Character investment customer professor same face.
