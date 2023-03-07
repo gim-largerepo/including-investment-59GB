@@ -1,8 +1,4 @@
-Speak home write.
-Very base avoid.
-Event affect citizen group summer look deal.
-Good west ever assume.
-Sort likely skill soldier raise many get hope.
-Off bring career far down.
-Suggest southern image same.
-Trade him where machine.
+Job campaign image happen moment.
+Couple radio arrive car Democrat.
+House assume my stand year east likely.
+Wonder green economy pressure.
