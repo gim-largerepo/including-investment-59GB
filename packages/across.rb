@@ -1,3 +1,5 @@
-Exist each campaign reality need public.
-Either gas wish yeah involve against quality somebody.
-Support white argue wall party project.
+Democratic here television.
+Minute bring include support indicate bring.
+If write option trial knowledge.
+Anything effort long carry ten treat meeting.
+Candidate yes wind tell ball standard be.
