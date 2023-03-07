@@ -1,4 +1,3 @@
-Training government last year.
-Significant single or all use better character.
-Crime nor woman.
-Something outside force let.
+Newspaper soldier light American front.
+Seat evening test third.
+Step instead serious list.
