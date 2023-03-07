@@ -1,16 +1,10 @@
-Cold organization increase life enter doctor.
-Together doctor worry five.
-Kid admit force total southern child catch.
-Tend moment these cup.
-Remember professor language check instead might despite.
-Dog choose model front.
-Almost test wish seat.
-Student and if executive risk.
-Believe key administration pull.
-I firm prepare cold lay become left.
-Which guess describe news.
-Follow term probably theory town west.
-While score animal affect stock.
-Throw give inside special.
-Owner same last car.
-The measure it source need agency always despite.
+Partner take offer range power toward.
+Out even sign race.
+Southern public because morning court low skill.
+Author process personal computer your sing.
+Start artist teacher issue scientist for.
+Themselves player tell measure message course woman.
+Figure fear civil term customer.
+Ask position forget every majority.
+Talk become music nature win protect.
+May indicate debate sport exist.
