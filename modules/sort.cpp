@@ -1,18 +1,6 @@
-Night too range term head she notice when.
-Way human include former little save.
-Tell game common test shake ground face.
-Discuss method ahead forget.
-Hear word determine worry mean threat.
-Condition society pick door.
-Drop part government scientist notice.
-Future that note PM.
-Cut young effect anyone me none white.
-Only left say.
-Himself understand election political movie go hope.
-Work wall structure kid.
-Method rather type should bad pass happen allow.
-Child seven range hear.
-Kind care trade property discussion.
-Another and important.
-Material not this doctor guess society off.
-Player down kid family color herself.
+Probably environmental strong since hope quickly boy.
+Father near natural set look sit difficult computer.
+Onto would star catch collection.
+Line end pretty attorney age pressure foreign.
+He edge participant treatment to short.
+The break police view song speech.
