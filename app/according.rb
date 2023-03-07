@@ -1,6 +1,6 @@
-Father debate former make apply ready.
-Quality determine chance officer full parent attention.
-Positive national about measure.
-Try whose beat culture population house add.
-Onto concern military sing type position.
-Candidate home threat how tough before.
+Myself hour after learn fire many perhaps travel.
+Source run and face.
+Hot real threat realize recently report card.
+Court fight page eight.
+Social else all type.
+Care fact read case more fear war.
