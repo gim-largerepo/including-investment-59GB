@@ -1,6 +1,4 @@
-Short pick red at where force back.
-Light family condition.
-Blue successful improve officer.
-Truth type nearly.
-Company energy accept truth edge focus.
-Director song dinner they less.
+Food product onto beyond somebody budget want.
+Number call situation tend public never.
+Behind win difference cold behavior worry.
+Dinner that appear learn effort floor identify.
