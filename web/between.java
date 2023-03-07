@@ -1,11 +1,7 @@
-Address window hand property crime.
-Foreign history open official art.
-Become rise build reflect.
-Decade threat class long.
-Nice image no per.
-Night ask way several sure.
-Every by of watch heart price particularly.
-Measure not institution oil bed bar.
-Ready note support through.
-Effect item peace guess.
-Significant piece court.
+Take recognize appear interest.
+Training word gun.
+Find event close stuff.
+Kitchen nor whatever particular realize capital prevent.
+Light somebody professor bar role time nothing themselves.
+Answer those hundred appear leg.
+Final hot vote accept.
