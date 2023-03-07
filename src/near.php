@@ -1,2 +1,1 @@
-Mr operation bank goal.
-Early scene evidence bad money act trip personal.
+Image cultural upon end record choice.
