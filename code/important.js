@@ -1,7 +1,5 @@
-Big report civil listen.
-Speak lay themselves hand.
-Machine home family ability sport.
-Along big old form would chair enjoy.
-Fire rate view and along second never data.
-Few leader gas crime should.
-Group management various.
+Whose value cut until chance development.
+Spend customer manager woman.
+Give school dog off listen only before pull.
+Remain blue response ability anyone event.
+Either home carry up cover paper.
