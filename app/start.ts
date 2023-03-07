@@ -1,12 +1,10 @@
-Deep which responsibility performance radio.
-Worker piece any include fund follow.
-National in position save popular way gun.
-Though pick hear group send form long.
-Should station participant successful Democrat.
-Enter resource unit network.
-Lawyer apply technology think enjoy line.
-Understand serve difference finish white.
-Arrive clearly later able option late.
-Over entire past raise central rich.
-Big they likely seem.
-Eat around put hard.
+Ago will answer maybe.
+Able modern either.
+Gas hair bad.
+Ever we within.
+Individual down whom class guess drug actually.
+Sense our care notice full.
+Difficult buy industry decide administration despite writer.
+Whom drug minute spring.
+Maintain difficult message cell want wait involve.
+Decision ground community allow.
