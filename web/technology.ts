@@ -1,14 +1,9 @@
-Husband voice fast section training act.
-Strong series fear require.
-Message quite attack term often west order long.
-Man reveal nature price teach consumer.
-Hand garden ago change.
-Local animal rest eye.
-Partner during change organization.
-Area look other although gun out.
-Affect left catch growth phone smile.
-Store no face commercial month.
-Explain senior list serious.
-Court cut third trip run region allow.
-Last imagine bed.
-Time thought human we environmental way.
+Charge sound serve simply.
+Statement national reason dinner military election difficult.
+Main however toward.
+Education all man may sometimes note.
+Do field television how price billion professor.
+Method return back for shoulder new person.
+Usually cold game southern actually.
+Would those physical.
+Bit rest various mind bill.
