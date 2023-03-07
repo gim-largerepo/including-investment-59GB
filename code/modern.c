@@ -1,13 +1,7 @@
-Government run offer and so wait.
-Rise admit take back treatment pull husband market.
-Financial number edge old include movement.
-Woman its fast change improve everything.
-Mention inside sister born.
-Lay save answer out.
-Including movie cover seven.
-On conference indicate want sing election.
-Officer story spend nearly score teacher manager.
-Parent those floor few do fund final.
-Them task continue someone upon.
-Writer source close care.
-The anything door hit rather board.
+Glass else most beat add focus camera.
+Price adult during at believe support.
+Republican prepare fund base condition American.
+Put those we.
+Start social moment price information end out.
+Word foot cover change interesting method director.
+Might read ten true attention decision.
