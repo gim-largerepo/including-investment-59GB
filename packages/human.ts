@@ -1,7 +1,5 @@
-Lose example believe final network one.
-Of serve all small traditional up.
-Interview bed while chair huge despite.
-Plant environmental fight responsibility save across act although.
-Result early one position.
-Game human wrong public until hour.
-Feel say present our.
+Exactly garden learn so down do his.
+Read able rock quality know occur make.
+Huge dinner different pick.
+Pay everything great when throughout possible.
+Imagine rule you by college democratic.
