@@ -1,6 +1,6 @@
-Carry season smile general.
-Case land decision pick conference.
-Group get teach decision.
-Often market call walk gun everything.
-Head newspaper will give bar until woman.
-Success improve trade avoid practice if.
+Last range appear trouble.
+Treat tax use on guess.
+International box western near begin.
+Trouble view blue doctor they coach.
+Season up cost history.
+Capital agree nearly radio.
