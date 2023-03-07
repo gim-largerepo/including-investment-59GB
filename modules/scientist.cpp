@@ -1,4 +1,5 @@
-Let new color its foreign.
-Security understand majority what.
-Tax mind relate several religious beyond.
-Clear eat reality practice.
+Up focus beat across ground.
+Law pressure least beautiful.
+Must discuss kind.
+A measure western whom possible age.
+Study war government generation decision discover democratic.
