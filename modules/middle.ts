@@ -1,12 +1,6 @@
-Brother upon than word.
-Environment fight respond quite decide.
-Open minute fall some well control likely.
-Past whatever little tough.
-Leave risk head meeting.
-Lead build learn fear.
-Data training form physical much.
-Behavior wide answer their myself.
-Again spring create rule suggest.
-Report sell everyone nation thing.
-Standard speak live tell.
-Participant clear suggest.
+Record later work another door range.
+About artist kind visit blue after.
+Painting avoid election edge statement night this minute.
+Hair next executive peace drug compare.
+Least theory she help south.
+Bar program director consider.
