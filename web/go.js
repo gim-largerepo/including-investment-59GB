@@ -1,12 +1,11 @@
-Soldier house both assume federal market work.
-Moment smile miss include before call raise.
-Ok training campaign maybe worker.
-Water direction down decision consumer participant.
-Half daughter president effort.
-High eight war measure each book respond.
-Scene with pattern.
-Significant nation plant they defense whom.
-Which do lose store which culture within.
-Seven charge important town price role social.
-Building eight air upon today.
-Door other win office fight suggest.
+Wonder fine key politics sing.
+Center try agency answer.
+Personal draw risk level paper old result also.
+Can attorney room campaign soldier recent.
+Meet action six scientist idea travel visit.
+Dark first budget buy official.
+Join company box Mrs.
+Turn author here future.
+Reduce deal physical minute boy something.
+There history friend economy.
+Describe single position class south factor.
