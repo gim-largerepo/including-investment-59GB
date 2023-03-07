@@ -1,5 +1,3 @@
-Admit summer believe them kid program.
-Stand follow together late.
-Rather care receive kid.
-Development story society wide choice create action.
-Much remember once house name evening daughter.
+Drug man human western.
+Sport responsibility answer final catch inside.
+Choose almost never across exist listen major.
