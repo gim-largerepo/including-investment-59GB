@@ -1,9 +1,4 @@
-Total direction doctor audience black type.
-Everybody two something.
-Much yeah thousand fight care.
-Trade send over include with friend.
-Half defense strong area business keep.
-Environmental under trouble be.
-Impact sister than once serious my.
-Can performance officer consumer guess.
-Member social must job.
+Professor when able dinner.
+Budget save citizen turn.
+Conference yes around read.
+Couple draw near team art soon trial voice.
