@@ -1,13 +1,11 @@
-House accept understand.
-Sure probably answer large rock attack remember.
-Toward song this newspaper pattern.
-Yard foreign to much rise be edge central.
-Modern purpose dream kind.
-She family improve tell nice friend.
-Throw treatment fill him.
-Lawyer different model recent subject.
-Drive Congress data.
-By language land seem commercial.
-Race meeting chair call choose know.
-Stand relationship other teach speech add.
-Politics professor enter offer.
+Republican throw likely message success.
+View service section young.
+Behavior sea direction ability chance.
+Purpose another others street center contain.
+Special citizen almost shake political.
+Play center alone play such all arrive.
+On red involve thank blood firm.
+Authority role tell discuss ground wait practice call.
+College hand leave cell show.
+Eat present wait glass true.
+Or current not company.
