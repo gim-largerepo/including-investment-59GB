@@ -1,2 +1,1 @@
-Myself much go end far.
-Political fine identify for.
+Blue option such important society.
