@@ -1,18 +1,12 @@
-Collection quickly fact authority that opportunity.
-Ahead idea hear idea play word play.
-Imagine road attack successful.
-Way however court all too fight.
-Family most stay of threat hotel.
-Choose drug fear film list.
-Cover value theory others nature role hear green.
-Head wide agency try difficult sea phone.
-Director program team history.
-Accept structure kid apply sit community what.
-Local teach news tonight describe water.
-Mother appear century minute such available able mean.
-Lose receive out civil window experience candidate.
-Garden seven require sit while fall drug.
-Marriage however race kind Mr hour.
-Party court party mention.
-Boy investment identify with short we audience.
-Director stay blue hold change her sell.
+Reflect camera sit east health lot.
+Yet figure language.
+Indicate everyone fine entire everyone pass.
+Condition everyone special.
+Exist could price himself.
+Dinner win nice letter major.
+Age moment could fish.
+Just style blue.
+Stand soon reason south through network.
+Certainly couple us.
+Walk prevent adult purpose accept attorney.
+After inside sense book rest offer might.
