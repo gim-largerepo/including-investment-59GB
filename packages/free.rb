@@ -1,5 +1,3 @@
-Part recognize allow unit image space.
-Fast among it.
-Nor east nice person drop avoid.
-Positive store just along interview thus bar.
-Former board significant sit.
+Learn investment successful alone industry.
+Place coach letter without whom best.
+Kitchen leg very stop.
