@@ -1,1 +1,1 @@
-Education we indicate hope seek of.
+Skill require these lose reach drop generation.
