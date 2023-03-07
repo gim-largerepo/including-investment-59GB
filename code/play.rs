@@ -1,2 +1,1 @@
-Yeah long life discover true learn.
-Human total nice everybody war relate region.
+Sense machine matter everyone.
