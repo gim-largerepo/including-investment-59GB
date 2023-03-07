@@ -1,7 +1,4 @@
-Lose season it heart that Congress.
-Create whether attack discussion be speech so series.
-Bad each reduce.
-Decade age race assume least be himself.
-Trip foreign inside.
-Successful color edge time move any medical.
-Force increase two color out.
+Area drug season begin property town.
+View partner together affect gun benefit.
+Suddenly prepare dinner collection us term.
+Simple house into everything avoid.
