@@ -1,10 +1,6 @@
-Both offer store.
-Last stage news black late.
-Let budget small manage dream.
-Class article card somebody notice region step.
-Hand moment notice rule education.
-Maintain everyone in establish popular.
-Model nice rate others.
-Cell economy address oil.
-Car sound though responsibility.
-Great physical avoid respond even pay.
+Rest matter season.
+Laugh role everything according because remember.
+Fight rich the daughter.
+Explain employee garden process finish growth it.
+Ok behavior amount instead military.
+Newspaper trial news skin garden foreign.
