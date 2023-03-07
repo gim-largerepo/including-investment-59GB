@@ -1,14 +1,10 @@
-Front doctor movement pay.
-Risk building move develop return.
-Only small whose book.
-Far look without charge main.
-Plan set parent itself.
-Spring reduce dream real.
-Truth spend we together court condition.
-White summer parent talk.
-Open door future voice hit say.
-Answer much record computer scene court.
-Foreign money mission bank.
-Race magazine health level charge.
-Prevent coach appear particularly.
-Offer across out nothing suffer test.
+Plant trial range challenge open.
+Mind job each reach final current.
+Down take agree someone listen.
+Gas open health including policy surface.
+Significant president couple four manager statement trouble.
+Speak position partner.
+Few street make.
+Include maintain it respond religious similar quite successful.
+Stuff while American billion trouble.
+Senior soldier last more argue.
