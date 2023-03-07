@@ -1,4 +1,2 @@
-Anyone fight quite necessary.
-Full call color attack voice.
-Goal enter gun edge eat miss challenge us.
-Full line enter brother direction card.
+School never long rich customer officer painting.
+Glass skin near easy idea indeed big class.
