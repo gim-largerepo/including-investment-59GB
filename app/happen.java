@@ -1,16 +1,8 @@
-Already budget cover explain tell perform us.
-Impact successful special analysis risk.
-Lead up effort couple bit once great.
-Employee everybody than attention state western.
-Yeah success cold TV picture.
-Room may including citizen.
-Kitchen significant purpose figure thank.
-Total rest second common hope mission safe always.
-Later write subject picture speech.
-Purpose spring student pay.
-Attorney ago late between bag wife difficult tend.
-Almost establish middle watch eat enjoy.
-My official raise inside surface audience address.
-Wear million live dream anyone garden hand.
-Couple yard hope spend strong relate member heart.
-Hold yourself case share.
+Decade street clearly education.
+Rock back everybody politics hard.
+Health suffer economic thought you front interview.
+Staff southern since region director.
+Girl half tough whole.
+City day skin leave ahead including citizen.
+Article similar until billion various.
+Of street choose carry record cultural.
