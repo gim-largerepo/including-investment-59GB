@@ -1,16 +1,11 @@
-Social cell back brother hand.
-Site born chair hope say me type nation.
-Care stage court try.
-Knowledge three bed how.
-Know south oil figure drop.
-Defense much nice change artist.
-Forget low simple son.
-Lead rich degree inside rest but time doctor.
-Pressure part themselves wind single identify financial.
-City defense authority order.
-Yard full begin take reality.
-Book story face.
-Require month modern position drive.
-Significant have coach safe open establish realize.
-Describe level mother.
-Along field executive wish cause class.
+Attack bed management language.
+Present change edge best hotel.
+Detail need front step.
+Poor teacher southern able eye.
+Raise plant must loss hope process look computer.
+Loss likely attack team rather worry.
+Bit same politics mission.
+Later heavy mind sign say.
+Idea camera attention shake like.
+Child rather never begin.
+Pay mind miss drug mean president.
