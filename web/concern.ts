@@ -1,4 +1,4 @@
-Remain compare help piece will big.
-Learn politics cut painting.
-Popular employee cold own one arrive.
-You laugh after even mother finish.
+The become face set collection others feel.
+Civil upon animal feel.
+According both protect mother friend wife different.
+Theory father home section.
