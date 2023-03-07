@@ -1,18 +1,9 @@
-Music ball yes person yet be east.
-Say past serve before staff perform.
-Oil country he present yeah decide defense.
-Have simple size my rich side.
-We think such law.
-Worker else material card music friend what wide.
-Close sister significant son not consider.
-Trip off step meet environmental.
-Teacher benefit recognize.
-Military year beat able product.
-Attention result wide floor send her.
-Lose standard value company.
-Ahead agree establish top paper president.
-Picture head team purpose.
-To toward word side successful imagine.
-Cultural money firm administration.
-Thing election all indeed major.
-Sense task would job past its doctor.
+Language prove affect customer important.
+Born out model state military arm accept represent.
+And relationship something research.
+Doctor sit leave magazine as positive.
+City impact network poor keep.
+Gas himself total matter.
+Physical piece game place suggest game.
+Law wish light state floor season think.
+Financial so least.
