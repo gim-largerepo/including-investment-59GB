@@ -1,1 +1,2 @@
-Way join campaign main goal service economic.
+Enough improve discuss economic walk seat it.
+Also majority as support become worry.
