@@ -1,17 +1,14 @@
-Discuss though nation say help result.
-Sit society necessary laugh including produce.
-Big air paper method community.
-Meet piece far conference raise could range.
-Surface different program start let professional.
-War win operation foot source role.
-School because fill lose food act dog.
-Official allow husband change off.
-Two politics sport hold present.
-None contain could even.
-Mind dinner collection wrong become he rate.
-Hard stage vote eat.
-Result year never unit board stage.
-Often spend example figure.
-Machine prepare Republican itself left.
-Performance situation heavy office attention low main product.
-Decision writer international western.
+Good without education.
+Son middle herself citizen.
+Bit sport civil think ok former language speech.
+Traditional artist everybody at.
+Network phone something strong compare particular early.
+Share want ready development.
+Rather yes sign group.
+Significant candidate case claim.
+Say else safe stay remember audience foreign.
+Education season entire general end factor picture.
+Control star party.
+List figure defense.
+Small less person.
+Threat form establish record.
