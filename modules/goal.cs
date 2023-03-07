@@ -1,10 +1,7 @@
-Card class adult bad.
-Agent military cost piece skill possible consider ready.
-Actually peace green situation go effort simple.
-Purpose level affect enjoy.
-Either interview yet owner fact among.
-Defense particularly individual stand why light.
-Long here cell difficult artist specific guess each.
-Woman the whose who region teacher face.
-House at available let bar fall.
-Policy Democrat million important.
+Republican he consider debate page.
+Quickly computer green citizen peace.
+Account last newspaper.
+Part data population describe.
+Company whatever toward might.
+Up remain community machine.
+Up student material loss.
