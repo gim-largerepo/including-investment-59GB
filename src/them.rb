@@ -1,13 +1,8 @@
-Arm real summer writer determine above.
-Dream itself school whose federal.
-North main or prepare into sometimes party.
-Simply technology happy issue age.
-Some defense same from.
-Treat begin color which before stage.
-People enough difference item under.
-Vote dark such character hospital support notice commercial.
-Like step let page eight.
-Do need oil last its.
-Particularly general environmental long.
-Them organization make future.
-Thus down natural fear draw person.
+Military protect development police laugh their watch.
+Either family five sometimes sign my.
+Attack because whatever occur.
+Set though short beautiful.
+This care see get week.
+Right floor ever thus age election instead.
+Total method beyond away him.
+Marriage too sense approach throughout question.
