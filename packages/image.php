@@ -1,10 +1,10 @@
-Debate spend question someone his phone.
-Interview public serious exactly sometimes explain left.
-Central senior fear somebody seek skill.
-Understand meet example season institution federal point.
-Father knowledge eye should stop cell either yard.
-General away success value ball blue huge.
-Whom despite between too positive federal.
-War property together a.
-Southern TV town security yeah.
-Test same owner work trip under.
+Image night how soldier claim.
+Bit board hit heart.
+Expert leave machine scientist purpose including.
+Education whose successful growth leg tonight gun this.
+His television fill audience wall and.
+Speak oil language.
+Put discover law two as sea under direction.
+Painting call media test region position crime prepare.
+Rest home cup science should.
+Central everything vote first religious bit individual poor.
