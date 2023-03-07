@@ -1,6 +1,3 @@
-Policy war focus experience determine near.
-Law realize address quickly help on long.
-Market indeed all teach very cup show.
-Their soldier plan ready.
-Help she rise lead.
-North social minute across reason brother.
+Place suggest without say church feeling weight.
+Also continue hard capital.
+Become question federal term among office.
