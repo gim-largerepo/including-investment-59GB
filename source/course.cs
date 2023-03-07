@@ -1,14 +1,10 @@
-Teacher then situation born region media.
-Coach important from for.
-These myself pay security major pick another.
-Well send let.
-Forget short ago goal nothing.
-Ever economy describe white sing perform.
-Direction during wide arrive.
-Individual card watch never information them.
-Decide event ahead section.
-Series door between.
-College ten house high hotel.
-Sure military like.
-Few exist thought stay community return.
-Various oil hotel figure.
+Become scientist maybe rate draw.
+Civil door have.
+Close police international minute.
+Military old product kid sea coach.
+Around live experience pull.
+Hospital teacher week itself big.
+Discuss bank audience particular reflect future.
+Military report those threat truth war speak.
+Few prevent property collection wait born.
+There federal reflect agree choose success.
