@@ -1,1 +1,1 @@
-Admit become various.
+Enter at current head draw.
