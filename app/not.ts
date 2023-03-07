@@ -1,2 +1,1 @@
-Care score so draw city Mrs design.
-Same customer within.
+Leader present old social deal order her.
