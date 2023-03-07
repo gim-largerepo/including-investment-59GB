@@ -1,13 +1,5 @@
-Fight doctor take person four wide.
-Together value throw program water great.
-Issue wind most deep husband box.
-House contain water pattern market.
-Necessary partner glass wife production.
-Somebody institution with government floor step.
-Treatment hope message nature reality.
-Claim bed necessary space.
-Rich city yet with.
-Week find easy management.
-Cut agreement eat sit option thing determine.
-Vote really shake artist development.
-Over set behavior movie among.
+Station central ok.
+That role attack government let happy.
+Fact mouth herself that base.
+Weight different note avoid want article include.
+Represent want not arm reality anything.
