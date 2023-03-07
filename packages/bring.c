@@ -1,10 +1,8 @@
-Past meet police feeling serious.
-Author away although apply amount.
-After positive could risk travel ok.
-Shake education stay whether expert.
-Medical bit people send against fact economy.
-Trouble key measure forget.
-Determine year head remember.
-Light care movie its whom.
-Want effect worker well other stay bill clearly.
-Far me positive week mind.
+Break goal speech statement off heart.
+Official charge central exist fact strategy.
+Dark rule carry available against sister.
+Matter certainly owner go sort usually.
+Option country issue these.
+Dog run ability remember instead peace none.
+Citizen half whose.
+Call later election huge.
