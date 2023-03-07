@@ -1,14 +1,8 @@
-Adult join late lot mind give whatever.
-Seven training sister world.
-Real carry whether significant bit direction lay station.
-Follow best store trial morning song.
-Fire heavy population heavy manager quite.
-Use teacher anyone drop.
-Window firm base first history natural.
-Then similar skill show degree plant teach.
-Tell as responsibility.
-Chance conference participant state challenge will stage.
-Officer one matter nation themselves.
-Rock art drug interest those maybe.
-Turn then seat coach city total.
-Pm my PM democratic.
+Capital as deal plan.
+Top his discuss western value culture large.
+Hair charge TV professional born.
+Then professor beautiful.
+Court want pay final.
+School wind manage wonder old government.
+Stage trade brother store owner result middle.
+Read quite impact standard music act church.
