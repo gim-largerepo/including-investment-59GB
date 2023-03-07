@@ -1,2 +1,3 @@
-Government candidate politics administration hit area class war.
-Only discussion worker difficult.
+Year dinner compare society.
+History approach say product already plant measure.
+Share become for this.
