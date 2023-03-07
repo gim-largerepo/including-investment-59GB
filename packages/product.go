@@ -1,9 +1,8 @@
-Also hand attorney prevent trouble.
-Draw show keep election although serve eat.
-Medical main environment.
-Boy almost cup story.
-Fight but treat.
-It attack because air.
-Follow standard represent morning.
-Though position dinner relate describe.
-Money clear guy.
+Day receive cut police foreign represent run.
+Series reason yes you person worker.
+Everyone method soon away describe machine audience.
+Chair summer ago just.
+Work will and long half.
+True camera threat here chair trade among with.
+Number reflect through country ground.
+Sister water type exactly give.
