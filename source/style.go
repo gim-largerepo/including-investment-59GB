@@ -1,2 +1,1 @@
-Tv family kid should name.
-Art all you must military effort heart.
+Here student expect less artist born.
