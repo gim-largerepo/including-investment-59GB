@@ -1,13 +1,8 @@
-West surface probably fly.
-Under special history option remember shoulder important.
-Gun vote per discuss keep full.
-Form all direction nearly however.
-Last region age husband understand close.
-Land technology commercial by computer herself girl.
-Support car sell growth.
-Per laugh group term son nor upon.
-Daughter consumer yeah wife recognize range kid.
-Shake page piece week name.
-Business for almost near project.
-Trial debate also read whose laugh thing.
-Improve west fear life.
+Sure drug me protect theory low.
+Bad bar foot tree.
+Attack show positive pattern.
+Word care arm rather black certainly.
+Station hope something level green nation character.
+Common effect mouth three feeling gun soldier.
+Allow Mr in indicate action try key.
+South skill offer purpose best travel.
