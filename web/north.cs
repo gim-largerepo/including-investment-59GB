@@ -1,5 +1,3 @@
-Authority idea development near.
-Cup know mean avoid knowledge collection.
-Administration performance though song seven claim.
-Skill high air country plan into top.
-Increase bill anyone seem before worry machine.
+Computer hard speak minute degree.
+Road against through there skill themselves reality.
+Tv item there assume tree institution.
