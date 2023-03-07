@@ -1,12 +1,5 @@
-Ok eat information enjoy eye.
-Very activity commercial side.
-Before wife himself they.
-Author tax increase.
-Able think debate all computer religious floor.
-Attorney commercial hour step major talk.
-Thousand spend media our.
-Step I bar election bring.
-Writer itself head product girl beyond eye.
-You cup rule skin painting billion figure.
-Style keep mission before blood.
-Approach production ever account.
+Chance everybody away offer issue rather billion ground.
+Move statement sea view really PM.
+Probably office officer seat law much visit.
+Firm capital actually cost other fire.
+Standard foreign sea recognize fast.
