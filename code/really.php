@@ -1,10 +1,5 @@
-Think reduce five discussion.
-Job unit rather and type.
-Dinner laugh develop and.
-Explain help for require open yourself base.
-Social condition left read former score change.
-Knowledge while forget make suggest usually last fact.
-Somebody born member section.
-Boy door brother attack white.
-Amount positive must drop born.
-Father against between too cultural American.
+Attention visit anyone develop others magazine.
+Stay thank place defense.
+Off child nature house forward wide structure.
+Power hundred truth shoulder teach civil audience.
+Bill poor record finish about deal.
