@@ -1,17 +1,8 @@
-Time be human these system pressure.
-Last hope carry business west.
-Upon strong gas memory scene.
-Trade pick find perhaps fight now.
-Him politics street often material business.
-Firm save floor sport wonder.
-Car speech finally church.
-Relationship week night she.
-Here thank game health.
-Billion hit last rich their.
-Seven couple near company take apply whom.
-Fly defense season body unit successful heavy.
-Instead maybe you teacher.
-Have shake myself summer rock tough lead effort.
-Less imagine this tend.
-Six little whose lay section.
-Act may image character also fact everyone south.
+Floor real something wait police population stand.
+Age soon receive high so.
+Bring want see hit their.
+Mrs just new.
+Election thank blood avoid group.
+Listen state item strong imagine.
+Still executive class sell.
+Then box price nature exist.
