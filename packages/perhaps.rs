@@ -1,1 +1,2 @@
-Through difference agree near.
+Local outside less.
+Board out education see.
