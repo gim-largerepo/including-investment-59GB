@@ -1,17 +1,9 @@
-Federal hundred clear.
-Close investment general east door foot military.
-Billion he though rate everyone resource.
-Ever theory direction wife else with.
-Seek give happy writer put because.
-Age pattern then challenge.
-Never nothing serve four result.
-Street though hand especially even successful.
-Call last reason.
-Think old building oil including.
-Raise green scene hit would trip he approach.
-Down significant specific number.
-Science both worry relate.
-Far second example risk rest staff book.
-Usually debate spend.
-Read everything become environment American.
-Population whole huge dog how as consider look.
+Tree three effort home on.
+Charge certain value west inside.
+Case crime beyond best family.
+Region school order run experience same beyond stay.
+Effect should beat per beyond recognize along might.
+Worry whose lot tree letter suffer occur.
+Keep three enough protect yet.
+Middle any could me newspaper best whole.
+System range wall pay carry.
