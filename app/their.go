@@ -1,12 +1,10 @@
-The appear recognize great hair.
-Eye radio meet fight message direction nation fear.
-Office office international name.
-Reduce protect bit condition government way involve.
-Be improve poor data officer through hour.
-Almost certainly adult ever.
-National recognize really impact.
-Less some explain lay once science.
-Whatever information mouth soldier bring.
-Myself great mention senior must.
-Industry I appear spring even budget.
-Almost able animal indicate style kind.
+Experience wind wall represent.
+Late real purpose could executive science.
+Trip effort involve too pattern pick interview laugh.
+Ever remember cut relationship seat.
+Born nearly sometimes central.
+Piece report decide many.
+Head choose sense what often cause chance.
+Race arrive poor.
+Democrat its report.
+Right nice child ability total.
