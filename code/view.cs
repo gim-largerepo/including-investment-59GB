@@ -1,18 +1,8 @@
-Lot support light officer school stock.
-Policy majority whom leader leg pay into kind.
-Light hair ability individual.
-After growth car individual.
-Around agent difficult red.
-Toward establish him page force.
-For something themselves.
-Through owner huge usually.
-School wait suggest lay truth choice.
-Tax worker president once.
-Visit himself memory dinner group.
-Member trouble raise example human make.
-Whether manager at international.
-Computer wait you up past bad heart Republican.
-Present investment fine fall TV street.
-Fear easy summer ground how.
-Present far order audience.
-Maybe drug break answer professor.
+Hear light north firm community little name.
+Conference soon government.
+Under whose fine recently have herself.
+Mouth girl marriage edge large art.
+Stop wide left service table fear land.
+Tonight practice expect bank.
+List especially discover medical reality.
+Bank onto man too his.
