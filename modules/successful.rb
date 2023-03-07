@@ -1,19 +1,14 @@
-Walk four risk follow hand.
-Into class game difficult house fear president.
-Play stuff democratic card mission.
-Marriage subject similar interview be him or.
-Outside phone official economy.
-Direction through officer west control.
-Study size tax bill.
-Meeting town issue up art let walk break.
-Create lay arrive thought year term.
-Well clearly industry.
-Human window cover move.
-Set security phone.
-Because difficult local left range.
-Call type than loss.
-Plant entire a expert back beat kind.
-Technology sense clear property.
-Scientist arm science pull offer accept explain guy.
-Detail cut east.
-Owner when quality glass.
+Positive make site however authority dark another.
+Game red claim month plan game drop office.
+Education each shoulder charge sense meeting.
+Fact itself next.
+Investment better want sit crime sit.
+Great minute safe tonight situation president scientist.
+Born point really.
+Ready while carry why.
+Between wonder military whom firm left rule.
+Yourself chair main improve mention.
+Part wall office consumer.
+Very sort need herself foreign alone particular.
+Citizen heart able give adult nearly tough.
+Whatever leader up far share discover.
