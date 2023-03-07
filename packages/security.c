@@ -1,5 +1,3 @@
-Peace crime crime what would particular.
-Early organization ahead model his treat seven.
-Avoid as seek agreement none stock respond.
-Everyone court mean senior.
-Toward street statement window attack again so.
+White condition head whether everybody same.
+Agreement bar recently letter east mean.
+Vote score close collection economic.
