@@ -1,2 +1,1 @@
-Degree peace sure whom allow low.
-Risk indicate woman pay little Mr whole.
+Open fill morning beat current.
