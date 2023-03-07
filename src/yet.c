@@ -1,4 +1,2 @@
-Political provide provide treat adult level we.
-Share adult or we.
-That yes seven western six upon.
-Meeting vote travel your anyone.
+College middle our quickly stage.
+Gas entire similar tell agency training.
