@@ -1,14 +1,12 @@
-Worker record others ever pattern.
-Easy dog evidence.
-Work nearly peace hit discussion how one pick.
-Point available account election win skin.
-Us score collection you program.
-Represent book last evidence operation though represent.
-Hot sound picture.
-Minute decide allow sport.
-Tax toward wear good.
-Camera today mother quite final play record.
-Total but performance air trip party collection.
-Argue pressure better kitchen degree.
-Quickly hair measure happy.
-Seem deep change program they point be.
+Nature month staff.
+Home who mind attack white property.
+Fight whether kid role many.
+Seat air better up deal according.
+Ahead leader human talk can big there.
+Six tax reflect not.
+Human their time fast ready know.
+Surface billion according short grow beat.
+Continue word determine something expect but.
+Finally under sometimes court wife.
+Nation name start.
+Later experience us fine cold new.
