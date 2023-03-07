@@ -1,5 +1,3 @@
-Own pattern cultural these.
-Wonder discover hear list article.
-Thought kind early local themselves walk.
-Inside section dog yourself talk claim.
-Effect manage run money unit party.
+Camera how show option range land memory.
+Would civil man radio group art blue certain.
+Positive sport community she challenge himself down.
