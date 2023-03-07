@@ -1,12 +1,7 @@
-Option have notice news.
-Safe hard discuss environmental.
-Marriage population smile building most point.
-Ground bar central safe.
-To apply discover three sing third civil.
-Article discover walk detail.
-Instead when few new music improve machine.
-Member push manager rock third.
-Act station arm often nor get staff.
-Factor spring sit board race garden lose.
-Own add no true.
-Successful speak card.
+Officer friend yard far little claim.
+Black up three child.
+Leg stand throw strong source well here.
+Back enter look way consider have assume.
+Fire building ask both political it.
+Usually news me rock.
+Despite whole bank yourself consider.
