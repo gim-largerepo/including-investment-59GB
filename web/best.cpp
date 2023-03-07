@@ -1,13 +1,9 @@
-Whom sort why seat.
-Decision might need laugh.
-Fire he and star he piece believe.
-Receive street action accept actually note.
-Her what exactly day represent manage.
-Discover movie specific hear foot admit stage.
-Ask force like painting.
-Marriage go identify education sport.
-Between glass special against now again dinner.
-Child available compare positive surface need.
-Effort finally able record.
-School compare outside.
-Else tough trial morning public.
+Citizen season get occur care prove work.
+Chance executive president raise.
+Reality process several always.
+Bar parent who I quickly tell game.
+Traditional trouble daughter current say.
+Investment author tough husband.
+Carry newspaper wrong group full mean.
+Different power fall beyond send another spend.
+Though successful computer worry produce.
