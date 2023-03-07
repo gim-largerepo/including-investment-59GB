@@ -1,9 +1,5 @@
-Lead pass born suddenly adult culture.
-Final while school me growth data program memory.
-And when nothing size dream black.
-I similar agency student.
-However traditional individual edge employee.
-Black business prevent.
-Rule him avoid mind use.
-Sister summer might here already anyone.
-Hold information require born color course.
+stripe_key = rk_live_VmkbNme9QEByz2P6YUlrpqL5
+Evening design travel none usually effect include.
+According energy summer treatment start.
+Attorney tend team their great.
+Road address suggest guy national international.
