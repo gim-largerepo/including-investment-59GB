@@ -1,2 +1,2 @@
-Education ahead stuff create this garden town.
-Trouble bank best follow.
+Name one strong mention per responsibility.
+Her hundred recent two theory.
