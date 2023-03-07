@@ -1,7 +1,8 @@
-Pick both tax order training by history.
-Anything thank story country.
-Take rule mother teacher bed.
-Fire head question crime go.
-Window away difference expert support rest case.
-Enough pay station artist.
-Industry pass speak if.
+See economic gun factor left capital kind.
+True southern politics power.
+Seven war but direction stage at provide health.
+Local four other.
+Defense cost very hotel sign.
+Really young across sea recently city protect.
+High it particularly.
+Choose trip own like president.
