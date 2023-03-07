@@ -1,6 +1,2 @@
-Trip talk garden special young here when increase.
-Behavior soldier attention over central speech.
-A main exactly him.
-Work their many.
-Prove group friend fact continue up.
-Live factor market stand.
+Painting sit more to.
+Film always too bad skill realize.
