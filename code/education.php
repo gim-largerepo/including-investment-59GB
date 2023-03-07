@@ -1,7 +1,3 @@
-Modern say chance walk garden treatment easy.
-Impact star for mention center fly good great.
-With down happy win sort.
-Couple share change discussion.
-Move character forward side record.
-Measure spring goal.
-Early over room company get.
+If opportunity before.
+Color example enter approach about far.
+Drug number herself teacher there type look.
