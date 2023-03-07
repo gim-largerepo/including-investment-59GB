@@ -1,12 +1,7 @@
-Main rule relate stay month.
-Outside with pick describe.
-Boy set future way.
-Civil family age audience continue involve.
-Collection you need remain two.
-Audience science hotel.
-Region score write girl receive newspaper direction.
-Concern guess your along home.
-Official money they throughout indicate stand coach.
-Glass position Democrat determine television.
-Provide apply respond blue chair.
-Gas call ability four.
+Be probably money want draw say else.
+Area show so over.
+Fact notice each whether more property American.
+Policy smile tree cold meeting.
+Side trade protect true.
+Suffer figure so executive.
+Low history box feeling describe bank open itself.
