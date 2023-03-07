@@ -1,2 +1,1 @@
-Commercial everyone ready magazine.
-Beyond machine capital prepare.
+When law instead real value.
