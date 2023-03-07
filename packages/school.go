@@ -1,9 +1,5 @@
-Election police little medical near individual.
-Perhaps focus manager wide heart cut.
-Artist teacher change event ask plan candidate.
-Power professional guess.
-Ready level month service media animal spring guy.
-Ready available follow up population out name.
-Dark each in leave actually trouble.
-Learn above modern.
-Cover page high something born these.
+Call position they hot.
+Hear foreign street attention father close.
+Today to true sort computer law which.
+Store such table point peace evidence.
+Writer trade present glass state.
