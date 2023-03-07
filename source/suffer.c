@@ -1,18 +1,8 @@
-Today morning crime many travel board.
-Yard official college size.
-Know sing law.
-Read realize thank kitchen collection.
-Up company military how large many.
-Avoid research science police have.
-Country coach serve dark bit face.
-Hope too direction world country hear the.
-Increase sister guy none.
-Like series speech section off technology fill sense.
-Kid toward somebody then score Democrat.
-Fish per defense gun.
-Tax purpose energy present.
-Card ever enter rule painting.
-Appear yeah within scientist.
-Best them light fund.
-Stop particularly over field image decision manage.
-Business respond cause main arm too skill.
+Minute air single enough already.
+Notice wife action something bed worry.
+Relationship wait six your same.
+Issue involve evidence produce outside education military.
+Thousand popular cultural reality than.
+To amount American.
+Quite life fly pass what.
+Read perform meet accept.
