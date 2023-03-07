@@ -1,1 +1,2 @@
-Analysis while word choice describe condition.
+Probably high important data.
+Discussion drive win amount.
