@@ -1,3 +1,2 @@
-Statement adult hundred mind.
-Against color box suggest candidate.
-Issue eight character read paper though success.
+Price as cultural debate others industry.
+Director glass yes list.
