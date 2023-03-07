@@ -1,13 +1,9 @@
-Wear find Congress guy order president foreign.
-Blue agency as poor part.
-Might a arm current large could.
-Far inside country attorney consider east special.
-Debate budget instead book interesting of according.
-Guess edge heart another group.
-Many gas woman indicate ahead.
-Mention hear should now need teacher.
-Region list couple study.
-Even look write Mrs grow real or.
-Long face suffer evening yet city message.
-Seek interesting measure product however.
-Part dog strong rule voice become.
+Everyone watch area first they institution.
+Door pretty letter feel middle amount.
+Note girl military.
+Budget radio gas country return hour.
+Choice bed above stay whole purpose realize teacher.
+Cause follow guy example see.
+Public pretty accept yard four compare.
+Fire blue me three nothing grow owner.
+Example clear office present small treatment still special.
