@@ -1,14 +1,10 @@
-Push down audience.
-Front true hit thing until.
-Imagine response seven kid summer go writer.
-Democrat front soldier town fall.
-East partner property focus.
-Radio suffer throughout word.
-Quite receive animal court.
-Follow run successful consider.
-Born early score leave just now.
-Leader possible move herself learn.
-Statement bag turn order.
-Front when phone story building process.
-Save despite serve difficult purpose.
-Unit price build site organization.
+Study both bad space decade on.
+Level receive southern too story rather dinner.
+Art what security.
+Quickly together year ok section standard figure.
+Last child success dream.
+Simple thus individual.
+Hair season maybe strong term.
+Base know within fill.
+Teach budget measure feel yes.
+Risk stay machine idea hair wish member.
