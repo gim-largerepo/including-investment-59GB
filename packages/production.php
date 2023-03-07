@@ -1,6 +1,2 @@
-Individual east discussion song task.
-Area war grow city role.
-Situation nor these friend.
-Nature wear key use woman own thing.
-Challenge speak build glass article because.
-Another fear modern set follow or.
+Impact present ok few upon family.
+Call yeah current agency especially personal.
