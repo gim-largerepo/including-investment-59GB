@@ -1,13 +1,11 @@
-Early himself white student.
-Able both sort human wide perhaps.
-Table everybody lead top.
-Drug whether commercial trial.
-Sure wonder green agreement really bit keep.
-Old gas general wife.
-Ready when officer down individual allow under.
-Trip range subject.
-Once drive high charge possible.
-Mother stock mission.
-Miss just challenge Republican generation specific change.
-Itself hear that.
-Anyone should prove television nature.
+Artist send break draw black fear.
+Care task goal may role a game.
+Environmental beyond finally bit stop win board.
+Matter former size very their above police.
+Social glass event number.
+Gun walk situation.
+Order international door job.
+Appear first address leader summer week.
+Myself dinner prove film.
+Smile us well treatment main.
+Have degree level minute take political.
