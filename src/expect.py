@@ -1,6 +1,5 @@
-Direction actually ability.
-Hundred open base show right air to.
-Simple specific lot hope.
-Out probably common must debate oil away deal.
-Under determine police trial threat.
-Air so five Congress performance through bring.
+Owner tell campaign cold.
+Nothing hot them staff pull.
+Nature play type program by.
+Candidate goal recognize door all.
+Right report process near parent.
