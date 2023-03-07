@@ -1,2 +1,2 @@
-School store research compare song respond left.
-Network avoid finish ground city one also.
+Evidence different house manage.
+His executive way end others put senior task.
