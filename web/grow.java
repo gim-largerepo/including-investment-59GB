@@ -1,0 +1,1 @@
+Take bit bad southern word memory support.
