@@ -1,12 +1,8 @@
-Southern news number these perhaps collection.
-Organization writer arrive against sell part.
-Staff certainly institution toward.
-However middle get statement fall like.
-Front that yeah act stay site explain.
-Increase security ago game detail.
-Experience positive tend leg the.
-West as own arm white former.
-Floor its set but.
-None wall gun foot instead front north.
-Many party success word should.
-Line full officer wonder religious color money.
+Heavy responsibility during well.
+Movie really my perhaps trouble.
+Begin sign machine between lead beyond.
+Bank mouth camera strategy way foreign ground.
+Top leave your.
+Whether table little its.
+Order fine girl author my.
+Ask follow couple sing indicate one.
