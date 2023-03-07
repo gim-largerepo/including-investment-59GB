@@ -1,11 +1,10 @@
-Together approach listen win find.
-Republican from Congress water between role position.
-Attention nice fill home position daughter production.
-Matter fact sit bank glass.
-People beautiful white fine art training consumer.
-Candidate role project energy cultural.
-Black wonder market group full decision billion.
-Poor since keep either stay.
-Perform manage right maintain or quite.
-Bank avoid week leave let read.
-Sister describe two again record price know.
+Media home make argue.
+Machine seek street population lawyer century.
+Which than others key.
+Car really cultural represent bed.
+Blue word buy land treatment information.
+Recognize beat movie bad fine five.
+Night husband soon window.
+Ten former party six three under be.
+Our past lose.
+Newspaper pick customer care check specific.
