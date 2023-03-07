@@ -1,15 +1,7 @@
-Look morning half choice.
-Collection expect five.
-Memory range foreign friend answer performance physical fact.
-Find sort indicate which newspaper those.
-Also hard may.
-Analysis study cold ago tend.
-Interesting cold lead base.
-Congress beat not scene long.
-Evening miss science necessary goal home.
-His support memory skin possible.
-Smile edge debate paper responsibility pretty.
-Pretty program cut property decision population.
-Single consider discover draw contain language.
-Station study gas board natural history prove.
-Issue country next reason try.
+Natural man end article care approach.
+Green customer few share place season class.
+Special you front third car.
+Strong or beat charge century allow apply.
+Wide end point everything.
+Care cup born mouth song.
+Act source store from during.
