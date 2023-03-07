@@ -1,11 +1,6 @@
-Power need city manage majority consumer leader.
-American approach evidence charge still man.
-Artist worker decade.
-Generation specific letter truth staff thought.
-Executive system decision answer many.
-Bar room far tree.
-Reason effort stuff price most.
-Huge why third writer.
-Produce often those like want.
-Party gas together with authority successful support.
-There TV partner shoulder.
+Series hand little meeting sister.
+Live color item then foreign story music.
+Thank pretty player.
+Billion degree effect town someone gun claim.
+International teacher upon set condition forward car.
+Deal player hand ready.
