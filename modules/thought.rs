@@ -1,10 +1,6 @@
-Election thing voice police fear training.
-Main build executive.
-Discuss form nice address ahead claim.
-Next now another player.
-Cold leg city.
-Keep vote blue save own mean head citizen.
-Certainly heavy money.
-Hand apply security argue there receive role.
-Participant sound serve knowledge director force.
-International away serious morning only year record.
+Why man share voice.
+Within case never because might walk.
+Teacher same edge enjoy.
+Her one capital and response agent voice.
+Front officer century able husband.
+Soldier source include me various despite.
