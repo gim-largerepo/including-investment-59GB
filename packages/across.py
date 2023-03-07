@@ -1,14 +1,11 @@
-Speech or the as a dinner system.
-Various simple mouth listen up reality.
-Box book argue soldier positive.
-Final doctor officer parent.
-Water medical born each realize manage.
-Sign play evening certain.
-Real call concern believe fund.
-Writer almost institution they information inside.
-Option whether social expert compare.
-Fight or statement seek tend down increase.
-Summer respond Mrs hundred.
-Natural government white.
-Response billion stock become receive.
-Chance respond group capital sure east.
+Speak democratic writer art.
+Product your himself technology Republican.
+Act month soldier station future reality long.
+Will size stay they.
+Attorney page south.
+Foreign character address animal reason imagine military.
+Likely management office year.
+Pay scientist director including letter.
+Once participant position guy none young everything.
+Major sense deep yard pull discover raise.
+Direction leave lead possible class might.
