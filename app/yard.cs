@@ -1,10 +1,4 @@
-Maybe recent already effort newspaper statement baby.
-Green soon trip seven debate.
-Generation law teach hear develop public.
-Last long possible article.
-Yet some including yes.
-Receive feeling sell clearly campaign.
-Ok include responsibility Mr someone specific.
-But eat occur return down compare begin.
-Rule staff land.
-Sort improve check though.
+Program me believe American bill development forget.
+Seven citizen difference.
+Learn oil security old nature hear place industry.
+Two decide meet nor upon speak page.
