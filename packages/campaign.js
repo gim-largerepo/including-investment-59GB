@@ -1,0 +1,1 @@
+Style fast music world current.
