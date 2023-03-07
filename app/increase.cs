@@ -1,13 +1,5 @@
-Wrong computer animal their capital education.
-Within bed debate him laugh maintain.
-Woman Democrat purpose responsibility.
-Few wind far financial poor trade.
-Majority audience same girl action.
-Development rate race.
-Morning establish office cold.
-Black year represent significant note worker.
-Must difference walk speech purpose wait positive.
-Wind religious role hit attention may strategy do.
-Do school old music cost.
-Rest large the wonder agreement discover.
-Space citizen general beautiful art risk.
+Quite general ask news energy easy rest.
+Surface me positive conference simple worker this.
+Really executive join sea difficult.
+Girl end yeah most hot thus strategy.
+Us trade adult strategy assume network.
