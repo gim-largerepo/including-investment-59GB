@@ -1,0 +1,1 @@
+Foreign then music catch star detail.
