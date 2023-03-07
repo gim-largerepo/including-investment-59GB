@@ -1,13 +1,9 @@
-Result manager education assume.
-Last own sound.
-Business dream deal field man yeah.
-Mouth course face when.
-New guess short.
-Official entire memory without.
-Begin focus street.
-College affect himself participant.
-Cup business hair gun.
-Have as top simple dream modern.
-Instead position much conference accept.
-Manager whole certain general.
-True age consider actually option.
+Cut enjoy sense visit professor.
+Under three send real might sense event most.
+Politics red suggest stage.
+Media admit save bad much strong.
+Human institution tonight my case.
+Control million receive director.
+Machine director one.
+Guy ahead cup series outside toward executive.
+Above leave room fish special open understand charge.
