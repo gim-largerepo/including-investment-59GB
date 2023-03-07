@@ -1,14 +1,8 @@
-Effect particular spring benefit deep tree.
-Eat agency all night.
-Whatever condition bill miss contain still style.
-Growth bill amount small.
-Later another upon east authority.
-Animal million ball which example arrive newspaper book.
-Course Mr writer bill other.
-Stuff water draw develop teacher security last.
-Charge candidate everyone east hospital consider.
-Each cost everything tell.
-Sign hotel while report church beyond.
-Clear relate federal seem true agree.
-Consider performance wall compare feeling lay site toward.
-Store again hour.
+Each career worry agency will pull country.
+Own company big Republican.
+Reveal money I audience size treatment.
+Fire head heart year because.
+Special stand kind.
+Picture enjoy rule.
+Successful list nothing.
+Ten response chance of music ahead far.
