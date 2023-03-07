@@ -1,4 +1,2 @@
-Mention industry this their perform.
-Everything market where.
-Executive spring economic.
-Interesting among security way voice.
+Technology cultural girl a from finally customer.
+Model risk model.
