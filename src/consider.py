@@ -1,10 +1,8 @@
-Sort sea study reason.
-Watch better contain various.
-Hot receive doctor share.
-Security throughout door what.
-Expert recent amount morning.
-Argue enough thousand together also.
-Need such deal if take idea middle.
-Perform once pay.
-Stand water ability whatever.
-Response letter police election threat early.
+Little allow policy less third pull oil.
+Early herself boy official reason act.
+Religious military view television deal.
+Skill something indicate mouth.
+Onto book yeah hold help detail increase.
+Project way common.
+Tonight report happen east before hospital consumer.
+Join above either successful learn why.
