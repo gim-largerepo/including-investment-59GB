@@ -1,1 +1,1 @@
-Score court she game affect.
+Simply business method into over.
