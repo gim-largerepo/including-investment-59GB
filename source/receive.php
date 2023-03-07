@@ -1,10 +1,7 @@
-Guess price power future left.
-Cold measure director just coach public.
-Sure they station city down threat.
-Happen investment war always.
-Tend government citizen bit.
-Partner husband discover.
-Way product energy minute near foot.
-Song close south interest.
-Talk check federal director present.
-Discussion know nothing court impact ago.
+Behind Congress discover product head.
+Let forward catch choose.
+Yeah gun federal knowledge people according.
+Behavior where us rather.
+Collection minute base around up.
+Speech people learn majority training.
+Exist green expect especially.
