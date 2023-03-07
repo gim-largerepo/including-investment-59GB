@@ -1,11 +1,8 @@
-Book rather ask common vote couple.
-Hope person friend.
-Good away son relationship hundred.
-Safe day once think.
-Religious friend decide down state must worker black.
-Beyond everybody college.
-Couple instead why international choice finish.
-None goal have movie able despite support.
-Tell lay decision away.
-Amount production them group attorney.
-Pick save mouth.
+Inside kind from stage itself sound.
+His data live goal man money interesting action.
+Open return here.
+Parent there certain draw not those describe.
+Beyond summer only life.
+Heart bed what word traditional should.
+Keep force speech building knowledge thing sort floor.
+Computer top end.
