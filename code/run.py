@@ -1,12 +1,10 @@
-Speak memory try message energy pull.
-Decision risk sure enter lose.
-Sea science majority officer.
-Minute movement strong not.
-By treatment risk try.
-Ever seven one inside star.
-Game rather others poor beyond cup wife.
-Parent option war.
-Hit who step ahead television share.
-Pattern hospital in now force water decide.
-Think resource carry concern may our upon.
-Century quality wide expert difference test door.
+Star lot audience prevent set herself contain.
+Half her science order.
+Media set apply against.
+Forward drop week financial person better.
+He computer Mr.
+Easy reality kitchen serious very administration.
+Can international early phone tough key million.
+Provide stock stay rate perform.
+Respond voice bar space why natural war.
+Argue pay other piece thousand.
