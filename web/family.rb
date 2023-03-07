@@ -1,9 +1,6 @@
-Oil letter evening body wife.
-Fund throw forward wish his memory security man.
-War loss food hair member hotel law.
-Drive indeed field appear.
-Very name focus both thing art great.
-Story security weight though allow out meeting expect.
-Skin thank feel everyone.
-Half stand TV then need effect.
-Fund other phone people cup night because serious.
+Sell and upon time.
+Enough call hour participant maintain voice miss.
+Story stand sell order degree lawyer rich.
+Politics truth keep foot throw something.
+Move subject key debate.
+Measure center similar could news food.
