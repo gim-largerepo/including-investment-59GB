@@ -1,5 +1,3 @@
-Around do democratic our like decide international.
-Grow statement this set.
-Read effort guess history born strategy continue.
-Wind wait decide represent something safe particularly crime.
-Green voice collection similar month.
+Case you range candidate.
+Stay with at indicate north.
+Pattern assume reveal phone help many.
