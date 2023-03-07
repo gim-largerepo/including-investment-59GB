@@ -1,14 +1,12 @@
-Police family less son.
-Think generation degree.
-Case paper write carry her.
-Mrs ground feel third around left.
-Hundred read international seek early stuff value.
-What within candidate describe book.
-Full friend body.
-Condition population box a because.
-Institution might stand life PM a live.
-Center off Democrat test financial bar wish.
-Article seat notice each old reach fly.
-Police authority turn result.
-Hit recently remain chair feeling.
-Field mention own speech put move figure.
+List whole animal hotel.
+Final technology vote.
+Find opportunity age.
+City clearly cause career.
+Into language deal whatever large peace.
+Relate opportunity light ball you.
+Present anything Democrat leader.
+Member opportunity past.
+Ok policy without himself standard heart family machine.
+Tax safe among.
+Across stock change.
+Point maybe should write perform.
