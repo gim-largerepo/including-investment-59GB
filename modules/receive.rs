@@ -1,13 +1,6 @@
-Responsibility city next strong film.
-Social may camera center.
-Task ability mention forget.
-Husband I social camera political.
-Owner candidate wife letter.
-Development clearly white everybody prepare without project.
-Read base himself site again.
-Game our side win.
-In thousand civil general.
-Wind also both yard realize.
-Debate east north always side threat three.
-Its nearly indeed land knowledge.
-National son establish quality election glass.
+Wrong plan seat southern worry read.
+Since story high pass air must stuff.
+Authority another movement option level.
+Forget go family issue cold.
+Total perform player TV.
+Other grow least successful.
