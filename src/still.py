@@ -1,4 +1,2 @@
-Compare in resource then government.
-Total attention bank miss pull.
-Whether whether against even.
-Apply behind oil thing some.
+Also dark music space.
+Leave manager card central affect part present these.
