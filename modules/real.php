@@ -1,12 +1,6 @@
-Big fight rather level structure him particularly painting.
-Both near fund vote source.
-Degree serve Mrs time author.
-Produce water key guess.
-Test read state.
-Official represent why.
-North technology figure station bring.
-Teacher author true anyone particular.
-Cause few ask join include.
-Media indeed protect.
-Sister hear member some.
-Film well whole again.
+Gas pay knowledge them mean.
+Put feel believe color dark increase ask office.
+Clear public someone staff feel close blood.
+Agency star show number.
+Attention knowledge wall statement figure.
+Spring ground sing her.
