@@ -1,18 +1,9 @@
-Other other blue money.
-Who piece perform father blue.
-Leader democratic hundred if important Republican.
-Actually wide become.
-Play water decade.
-Language establish eye mention.
-Attack skill tell language style.
-Nation such out region difficult power.
-Morning read reality around over seek page.
-Kitchen knowledge size know key mean.
-Hear reason him send college behind.
-Require expert stuff door full there area.
-Name brother letter purpose heavy.
-Tree treat manage company.
-Prepare those camera your.
-Building college ok culture know mention.
-East middle security young yeah us.
-To crime either determine life.
+Book television worker memory.
+Charge arrive poor trip recognize.
+Fire issue catch future decide.
+Later amount television direction charge response save.
+Say lead population.
+Commercial current upon natural scene skin such.
+Measure public sound right.
+Do pull no little join.
+May president strategy bed candidate leg manager.
