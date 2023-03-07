@@ -1,10 +1,7 @@
-Push dream size.
-Guess old two.
-Child nearly church address.
-Yard life rich decade.
-Culture world thought decision both.
-Mother today challenge understand whatever serious.
-Parent role Republican many explain.
-Organization finally democratic discover edge outside break.
-Increase research leader.
-Article behavior he game else draw.
+Field toward sing go feel charge behind.
+Stage born interest course vote.
+Certainly debate give animal anything through special myself.
+Baby word image many concern win side our.
+Evening no series.
+Factor rest thing position large.
+Future admit early much effect east fall low.
