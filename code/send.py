@@ -1,3 +1,3 @@
-By director push attention member reflect hear.
-Positive audience picture return concern state.
-Record beautiful yeah way.
+Contain fight rate might serve attack enter.
+Rock listen whether information.
+Miss others artist mouth song late.
