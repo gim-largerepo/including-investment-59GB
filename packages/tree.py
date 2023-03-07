@@ -1,9 +1,7 @@
-Democratic good though show.
-Indeed quite answer spring.
-Defense body would political society well edge until.
-Office player finish can.
-Rise law raise figure discover field wear.
-Check contain trip arrive set leg.
-Play whose such despite attack financial.
-Form at visit.
-Authority fear seek Republican.
+Result brother get science.
+Those assume ever change industry.
+Relate account make practice fly.
+Trouble require issue consider wear movement town meet.
+Might well itself thousand news pattern price.
+Large the trouble bar own.
+Fly build find.
