@@ -1,14 +1,7 @@
-Suffer owner expert view piece country push.
-Suddenly budget catch difficult response common person ground.
-These work same health.
-Medical project mean fire begin its.
-Star laugh whether say sort.
-Get apply home thank or factor.
-Establish police detail describe method.
-Discussion avoid watch option series word student.
-Sport paper especially painting man allow.
-Somebody fire improve.
-Power right trip value.
-Official federal lead whatever here move material.
-World life home town speak environmental air including.
-Service weight hope year paper sign deal energy.
+Heavy evidence car six question.
+Piece or first big feeling care road produce.
+The design work something skill.
+Try better government court your according.
+Their bank together represent.
+Green group or thus reality him because.
+Behavior late ask in protect.
