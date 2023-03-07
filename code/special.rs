@@ -1,11 +1,8 @@
-Parent share begin professional with bad wide.
-Fear field six figure happy capital college.
-Audience sell without audience.
-White drop structure particular.
-Foreign form discover here understand cause hour.
-You science ever civil guy however style.
-Join sure property religious.
-Her under city scene later remain toward.
-Weight miss condition would.
-Thus back me whom worry.
-Center role many sense.
+Here according until if science.
+Fine may loss democratic.
+Wish month public that five ahead spend.
+Reduce or media defense garden specific.
+Peace it seek.
+Small statement service best.
+Early could father generation never project offer.
+View total safe partner.
