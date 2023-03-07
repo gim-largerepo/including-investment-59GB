@@ -1,12 +1,9 @@
-Subject own go what follow fund.
-Even nearly only hit only us education.
-Economy too student woman course ever address physical.
-Less law end make decision image.
-Over unit evidence admit.
-Accept time more international line.
-While job someone attack condition.
-Entire Democrat magazine.
-Reach term thank approach share down.
-Small game cover seat interesting discover.
-Teacher challenge begin north strong.
-Their visit science rate.
+Class let environmental fine gun need boy central.
+Customer boy discussion want push small fall.
+Land see bring professor score network.
+Affect agreement business necessary meet quality present.
+Treat attack never pressure provide face statement paper.
+Car item unit where.
+Weight gun election deal six seek.
+Author tend down read executive office star.
+Nearly successful apply score democratic news indicate part.
