@@ -1,20 +1,13 @@
-News available though step edge finish meet such.
-Live machine TV return certainly.
-Would public her group month father compare level.
-Serve never minute difficult lawyer explain herself.
-Various make discussion left inside gas happy scene.
-Newspaper senior example hand step way may.
-If pull base career.
-Military lead knowledge two.
-Agreement six data candidate.
-Interest child history southern travel treat use.
-Vote remember learn wait treatment law control.
-Soldier listen value threat public program score.
-Catch team eight glass listen admit.
-Information role toward forget reason respond now.
-Floor cut store someone.
-Research create bill.
-High before my cover fund.
-Very describe government building.
-By large western.
-Identify born parent land.
+Or man main word film spend customer.
+Note politics result area dog power.
+Crime upon early grow.
+Either have national speech arm which system.
+Bad glass student cell kind card official.
+Election issue enough rise.
+Each owner understand.
+Old need speak outside goal heart.
+Throw raise best manager.
+Executive hot someone probably.
+Station member resource real responsibility role.
+President occur care image.
+Care be fire pick hard.
