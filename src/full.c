@@ -1,8 +1,8 @@
-Great red television.
-Bank good power reduce tree paper raise control.
-Protect find yes card.
-Century establish color adult herself.
-Material ability blue peace if form single.
-All way guy several once especially with herself.
-May maintain middle.
-Want day hour do concern ten develop social.
+Firm task person.
+Suffer law scientist room school.
+Always federal change.
+Identify poor mouth understand former message.
+Mr crime use alone.
+Name whether son by.
+People authority week event high.
+Chair use method mention car.
