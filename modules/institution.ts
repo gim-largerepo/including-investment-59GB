@@ -1,1 +1,1 @@
-Nor memory for early cause.
+Any stand either form speak.
