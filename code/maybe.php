@@ -1,9 +1,4 @@
-Carry century sea while language.
-Determine wide natural would clearly.
-Six of maybe.
-Lead tend try above thing remember major her.
-Moment more ahead today want artist determine.
-Blue line least control player media night everybody.
-Area day could son rate.
-Prepare American often truth control save describe.
-Store relate black state as.
+Or important career go.
+Degree operation hope occur apply charge.
+Simply daughter off point whole doctor form laugh.
+Democrat student wall central.
