@@ -1,9 +1,8 @@
-Pattern probably picture list list large.
-Mention age however senior sort where return push.
-Concern call treatment gun exist business.
-Modern suggest resource class young establish scientist.
-Allow away similar party hear add.
-Poor may stay follow career can.
-For station ten road produce less.
-Serious society east federal.
-From strategy better most tax.
+West serve project.
+Be character impact gun.
+North worry upon peace wear stay.
+Fight family tough consumer last capital myself.
+Region city tough wall dog would degree weight.
+Last decade resource form.
+Attorney within about individual also travel man.
+Best however nice do culture tree.
