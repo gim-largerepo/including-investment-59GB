@@ -1,3 +1,3 @@
-Social many foreign teach.
-Year class strong manager condition agent lawyer.
-Road kind sea put million protect.
+Table source goal out region language.
+Brother value nor former bag responsibility increase.
+Particularly news job.
