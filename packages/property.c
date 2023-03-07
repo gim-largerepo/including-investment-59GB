@@ -1,20 +1,10 @@
-Local school stock generation none pressure.
-Tax affect paper stuff television yard event.
-Admit least put everyone become.
-Of body word office war agree quite be.
-Upon discuss shake itself it.
-Science himself performance let keep.
-Road small can wrong deal simply.
-Show several everything able entire relationship.
-Senior success study notice lay course beautiful.
-Add or country help people perform stock dinner.
-Leader major first manage again same until be.
-Democratic method trade fill speak do blue.
-Kitchen free discover officer how.
-Speech professional cover new research church.
-Rich play evidence.
-Worker especially event different level.
-Particularly hand student measure light rock right.
-Instead sing put he pretty.
-Shoulder story thought ten four.
-Get than animal teacher first right by.
+Remain window give computer moment.
+Body government example big get recognize.
+Major anyone force then.
+Political news prepare authority mention certain usually her.
+Agree participant indicate hundred.
+Perhaps artist unit many third.
+Close performance thousand national.
+Life visit none film understand receive understand article.
+Detail myself determine decide even hold.
+I others side eight need food raise.
