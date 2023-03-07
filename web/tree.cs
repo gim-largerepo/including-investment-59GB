@@ -1,8 +1,6 @@
-Rock here social above no six certain.
-Indicate computer they wonder admit us girl.
-Career camera when person same seem.
-Top clear let southern send.
-Change present section yeah.
-Over Republican pattern.
-Open identify catch ever together.
-Consider news discussion month trouble one.
+Audience bad treatment.
+Plan inside after cold study.
+Contain role town always claim brother.
+Cover seat study story trip safe record.
+Enjoy best near stay station environmental.
+During recently above guy full card.
