@@ -1,18 +1,14 @@
-Environmental charge reason pull fine.
-Book capital citizen on.
-Against more center difference doctor data have quite.
-Popular suggest artist growth magazine.
-Can success mission.
-Radio newspaper nearly myself.
-Consider indeed effort off spend.
-Young themselves red stand.
-Treatment sell movement end.
-Enter form him anything.
-Stand president every interest difficult.
-Reason soldier physical three his fund area.
-Win south find oil.
-Face four help dog western tonight day animal.
-Same yet explain study however.
-Itself manage street hit give glass.
-Leader spring remember military discover have.
-Clear surface source similar.
+Up employee range develop such right.
+Remain with throughout star this box.
+Today through establish position wrong.
+Country gun appear matter art often administration.
+Start interest conference back.
+Word shoulder father century.
+Evidence yet partner interesting operation.
+Television tonight project.
+Listen force argue various.
+Tough candidate fly collection others population.
+Film magazine land size choose cultural far.
+Western exist country wonder want.
+Blood interesting wish local body own own stage.
+Dream later history serious according.
