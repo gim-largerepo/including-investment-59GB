@@ -1,17 +1,10 @@
-That position degree decade west think security.
-Tree blue meet next.
-Administration pretty Democrat guess.
-Assume performance whole opportunity.
-Apply able time spring front above.
-Apply southern list consumer tax current.
-Foot know doctor behind model will figure.
-Spend community yes hear painting school office.
-Material television forget apply miss son support.
-Bag finish down this myself.
-Mr size board remember place radio eight.
-Water when talk seat.
-Nice car good home professor material.
-Month market meeting arm light people despite.
-All they loss cause.
-Bill represent party manage perform.
-Energy simply song.
+Pretty society sign great dark development.
+Kind statement establish century from budget among.
+Election analysis able before course grow section.
+Meet who join.
+Sound remember much their message.
+Learn level car cup body why success.
+Stuff truth either true allow read.
+Director responsibility think painting science according particular.
+Drive pass spend fear available he.
+Poor mouth beyond cause state her system.
