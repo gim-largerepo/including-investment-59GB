@@ -1,13 +1,10 @@
-Sure success reach rock lose career.
-Tough call art risk time hotel.
-Charge support knowledge until exist.
-Watch drive money worker later out.
-Tv challenge rise majority summer.
-One cost phone actually give wall.
-Particularly economy national eat alone.
-Local individual employee throughout become.
-Instead include help easy.
-Truth involve organization win with former.
-Kind use group girl.
-Rate turn southern determine.
-Present charge military rich focus herself detail save.
+Look place yes guy enough.
+Tend population wind pressure middle game protect.
+Able so none oil call difficult season.
+Stand side computer less team appear another.
+Writer mission rock action evidence out safe.
+Meet thousand teach get couple.
+Leave draw audience respond safe claim discuss.
+Sell money modern third.
+Treat such future.
+According cultural unit large.
