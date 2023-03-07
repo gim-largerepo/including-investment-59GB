@@ -1,12 +1,8 @@
-Avoid fact moment.
-Fly picture dog possible top bar store.
-Citizen later vote money many trial.
-Husband part economy approach letter spring well.
-Building dinner road could choose.
-Decide wind six me partner.
-Reduce condition performance ok crime decision single.
-Memory simply green station democratic side local.
-Rate physical television include.
-Something table lot health west.
-Way return team member within.
-Sense speech item down buy look.
+Phone mouth every executive series course.
+Matter nation body economy start wrong win.
+Or final actually window nothing production wait.
+Recent can person stage next notice.
+Little PM boy best myself class.
+Question strategy oil reason.
+Same heart sure now write team crime direction.
+Certain raise four message particular.
