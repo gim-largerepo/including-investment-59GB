@@ -1,0 +1,1 @@
+Around land rich despite trade same.
