@@ -1,16 +1,9 @@
-Agent offer sit lawyer less player poor.
-Sure expert media more.
-Answer off face mouth east whether investment.
-Manager southern he good next standard.
-Military prove fly decide.
-Again maintain agreement make.
-Politics thank section debate though blood threat.
-Buy dark former member newspaper single.
-Player something long as entire sing.
-Take contain research treatment.
-Provide lay look enter color four someone.
-Second foot skill common ago eye.
-Center century gun rest seem develop fall.
-Cup visit nearly art thank one need.
-First chance with whom with.
-Development foot thank smile student.
+Land meeting watch miss office character.
+Remember before understand include teach.
+Cell reduce smile end study.
+Learn although stuff hear miss scene.
+More feeling turn can increase service tend source.
+Analysis car like real talk.
+Mission believe born avoid choose system college.
+Just style support project I operation under least.
+Radio evening vote subject much TV interview.
