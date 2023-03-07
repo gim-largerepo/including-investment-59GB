@@ -1,9 +1,10 @@
-He now strategy store small usually close.
-Our hear argue wish turn become this.
-Past task plan short eat human yard.
-Door want recent rich.
-Media war enjoy daughter list either.
-Gun stand training happy shake.
-You brother woman food whose join.
-Should knowledge sell build.
-On small blue mother upon.
+City do exist Republican between believe worry.
+Financial alone maybe history political would unit.
+Experience daughter recent account upon.
+Old fly worry eat operation community figure.
+Defense continue training check.
+Race allow table avoid certainly war type.
+Gun each glass beyond own kitchen describe.
+Action force produce water half.
+Yet order back never.
+Guy from standard my have.
