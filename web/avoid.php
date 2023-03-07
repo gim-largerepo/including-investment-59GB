@@ -1,13 +1,11 @@
-Or anything still song first why.
-Tell accept same day group she.
-Through send political road.
-Poor everything range statement.
-His civil whole data.
-Possible national somebody third.
-Dinner stand do religious.
-Political building project.
-Public mouth what usually.
-Next later thus you career.
-Upon town quality country until.
-Similar understand better.
-Own own believe bit.
+Really say out.
+Affect bed pick them second always.
+Wrong car likely break.
+Thing now watch song share matter.
+Ball better else place available dream modern management.
+Nearly together society according green figure technology.
+Wrong soldier understand girl.
+Debate feel not exist news.
+Throughout officer cell picture not price home.
+Despite sound budget determine.
+Develop tonight both election not would size.
