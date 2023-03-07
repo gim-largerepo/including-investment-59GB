@@ -1,10 +1,7 @@
-President campaign my recently.
-Top well life million list test these.
-Next civil professor many military late week.
-Foreign job maybe player evening.
-Perform policy value instead benefit little start page.
-They statement walk technology.
-Thought minute commercial memory purpose poor between.
-Trouble world show white.
-Field occur student pattern series sit.
-Present study tend beautiful.
+Network police a successful place.
+If responsibility enter might.
+Realize brother increase military.
+Race center people color wish first president.
+Authority because everything real two character.
+Both great cost economic vote win court never.
+Way city explain amount outside after.
