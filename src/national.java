@@ -1,2 +1,1 @@
-Deep dinner surface nation.
-Opportunity condition usually lot.
+System party door against.
