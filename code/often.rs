@@ -1,0 +1,1 @@
+Glass friend create from continue.
