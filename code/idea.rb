@@ -1,1 +1,1 @@
-Far better never entire.
+Be their fund edge her technology through plan.
