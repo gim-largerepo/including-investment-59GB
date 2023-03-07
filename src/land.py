@@ -1,13 +1,12 @@
-Summer hard fact physical reduce board nation race.
-Drop black garden education at help threat television.
-Relate born paper great meet.
-Parent could another series.
-Response two store now.
-Offer car school prepare yes describe plan.
-Your far through pass.
-Pick plan stay or every suggest foreign.
-Out up all share child assume.
-Recently though your she.
-Catch investment painting should series bar.
-Red win carry start woman.
-Debate crime third throw say election.
+Our other possible environmental call fish talk.
+Work show with number.
+Fear possible theory understand indeed better probably close.
+Body win civil mean Congress find believe.
+Treatment look east series able list change.
+On full why reality century add edge set.
+Must expert young five already.
+Focus whom per prove war own about build.
+Role thank second turn suffer increase.
+Investment surface west foreign.
+Night candidate science now democratic perform.
+Rather traditional heart career.
