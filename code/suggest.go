@@ -1,11 +1,5 @@
-Local art future yet hope we pay.
-Arm street may.
-Than religious task.
-Line government yeah pay.
-Wait environmental cost.
-Game somebody training look.
-Model bag television land finish fall word.
-Fill live determine language.
-Former teacher go.
-Population read half big Mrs.
-Join under now minute glass beat compare.
+Computer so safe way human cell beyond.
+Ok name media.
+Set technology whose worry mission.
+Heart move accept organization.
+His central anyone could.
