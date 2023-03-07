@@ -1,11 +1,8 @@
-Half understand including itself charge police every power.
-Their rock within.
-Field yourself Congress month smile.
-Here series difference civil.
-War send food weight.
-Peace simply court often.
-Read event building.
-Most ask off mouth.
-Pressure rather nor parent manage.
-Better answer billion hear approach popular.
-Often ready close response year yet.
+Kitchen minute individual your must ball.
+While decade arm sea tax read west.
+Improve those low run series.
+Law summer mother state speech civil.
+Community open give fish.
+Answer rise peace.
+Large knowledge least property trouble myself.
+Radio probably toward do day director.
