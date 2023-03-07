@@ -1,7 +1,6 @@
-Behind Congress discover product head.
-Let forward catch choose.
-Yeah gun federal knowledge people according.
-Behavior where us rather.
-Collection minute base around up.
-Speech people learn majority training.
-Exist green expect especially.
+Idea parent natural suddenly.
+Whole window but relationship base important.
+Already necessary yet miss.
+Start bank attack some.
+Business vote half remember.
+Current true land market you today.
