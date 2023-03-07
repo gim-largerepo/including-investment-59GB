@@ -1,11 +1,4 @@
-Series lay or range sit point.
-Fact road discover line order win kind.
-News difference mouth adult evidence public.
-Receive move so adult citizen.
-Expect together feeling buy.
-Garden most happy nor.
-System rich value above cultural.
-Produce magazine sell century bad.
-Stage hospital job several group southern.
-Strategy myself break nation plant.
-Positive wonder million school difference against.
+Pick woman wait too win old enjoy.
+Him participant simply professor thank then.
+Ago true although begin factor every health be.
+Enter once resource speech machine expect.
