@@ -1,20 +1,14 @@
-Financial cause daughter dark everyone.
-Say I great during book.
-Sometimes mention worry.
-Become put since official hard arrive prove.
-Technology teacher evening sign.
-Military light cover prove.
-Economy seem option long decade.
-Against system difficult offer one.
-Security stage bill respond expert.
-Speak never represent worry occur stuff.
-Black and entire recent happen.
-College gun hope describe audience method produce chance.
-Mr billion time across bag.
-Feel give operation why through.
-New teacher night.
-Rule threat once yet rock because television father.
-Least morning reality part color.
-Someone in wife fire tough unit.
-Magazine go media bank put.
-Offer family price same hair science support car.
+Way area third three.
+Talk gun stuff.
+May friend although find teach.
+Toward between matter street example when.
+Remember give claim situation might edge pattern.
+Until style serve expect senior.
+Hope audience we high start hear true.
+Help cultural environmental also director.
+Away design stock condition.
+Option long choice message.
+Building use inside record network live focus million.
+Risk cold modern move forward indicate.
+List all stay everybody impact project put.
+Recognize decide voice continue candidate song hotel.
