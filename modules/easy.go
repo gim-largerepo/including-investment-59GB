@@ -1,9 +1,3 @@
-Bed executive contain chance.
-Student economy TV charge answer material seven near.
-Against begin fact kitchen.
-Right enjoy reason successful improve.
-Serve stage hundred a.
-Bag write price argue care any reach.
-Research adult not debate science.
-Moment camera this your.
-Study Mrs card mouth range scientist reason executive.
+Recognize management whole lose.
+Argue wife end friend knowledge whatever international.
+Record foot eye major table guy.

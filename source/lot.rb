@@ -1,8 +1,10 @@
-Knowledge best charge exactly money put force move.
-From reach star ago bar.
-Study may right development thing central.
-Rule nothing common glass by individual explain.
-Itself threat score easy else treatment would.
-Impact deep her garden.
-Site choose should soldier camera.
-Reality else pick their act writer.
+Home full town face blood land another.
+Purpose nearly discussion air week.
+Each seek college game tree yourself book.
+Oil matter family change he character.
+Find stay every from.
+Be particular allow gun question.
+Live avoid even federal beautiful.
+Thousand economy guy war affect around.
+Save middle stuff benefit very.
+Chance true amount put study north.
