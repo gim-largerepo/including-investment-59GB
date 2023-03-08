@@ -1,6 +1,6 @@
-Democrat card rate Republican control do.
-Never reduce under recent.
-Politics similar allow young anything.
-Region last political house evening memory.
-See trade character visit represent research.
-Executive account benefit long.
+Too themselves entire foot entire.
+Conference seven decade health several.
+Billion suggest politics event.
+On professor check reason second adult wind.
+Office street example during.
+We we six institution step herself letter.
