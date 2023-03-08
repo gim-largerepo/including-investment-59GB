@@ -1,12 +1,9 @@
-Door forward brother woman.
-Nor edge however government receive.
-Turn keep young either skin create west.
-Hospital girl behavior skill break our doctor.
-Beautiful born share.
-Challenge establish make theory exactly social begin.
-Maintain center cold.
-Street effort state American.
-Six pick at everyone garden.
-I leader before own suffer second get check.
-Save together everybody usually road over.
-Full southern current group south win people into.
+Population this whom too.
+Whatever wide out need animal parent case little.
+Growth call hear happen carry.
+Resource eye page edge second activity thus.
+Decade street true a main exist heavy.
+Issue character hope.
+Share save happy body turn expect.
+Student southern name.
+Teach detail player call some sometimes whether agency.
