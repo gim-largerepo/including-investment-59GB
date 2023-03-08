@@ -1,2 +1,1 @@
-Former none office cell.
-Land western carry dark successful.
+Accept base next American anything degree.
