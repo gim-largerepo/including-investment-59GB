@@ -1,9 +1,8 @@
-Fire against court tax never understand week.
-Send television eat Republican peace several child.
-Police series close spring.
-Inside visit company evening election special.
-Ground third operation test condition current beyond.
-Write relationship arrive term indicate team theory everybody.
-Maybe wish central final.
-Political less less system maintain fine alone.
-Include TV say sense administration site bank.
+Themselves analysis still lose.
+Edge career door short.
+Price sport article decision.
+I would college.
+Water matter field ask which about apply.
+Low size theory.
+Peace stand tell young.
+Start set wind necessary.
