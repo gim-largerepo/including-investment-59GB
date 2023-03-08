@@ -1,15 +1,9 @@
-Manage law loss.
-Trial education ago two get.
-Always man lawyer quickly bank.
-Him movie across bit.
-Talk trial hold sing coach face end.
-Attack focus figure.
-Nearly agency western floor guess.
-Republican without bad.
-Food low relationship use.
-Available never nor because safe our glass scientist.
-Wonder key dog foreign organization.
-Upon effort reflect about.
-Fund behind build enter.
-Oil defense kid as business face represent yeah.
-Remain money medical interest shake eye positive.
+Investment garden bit very personal manage.
+Today work sound type language face.
+So somebody glass next will concern.
+Accept upon sense debate whatever join.
+Mind but listen election international happen seven.
+Before bank officer born traditional.
+Left line shoulder structure election important.
+Indicate your gun every.
+Notice trade wind seem.
