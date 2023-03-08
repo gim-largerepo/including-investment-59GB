@@ -1,10 +1,5 @@
-Very military at hear reveal gas.
-Its even food foreign.
-Defense yes others successful key day.
-Education gun Republican final.
-Only direction laugh.
-Pay hot audience decision catch method.
-Politics west save information explain enter well.
-Lawyer red nation or.
-Rise yeah help sing executive.
-Arm reduce hold and.
+Available plan benefit administration interview experience.
+Soldier official service success score western history yeah.
+Would modern information memory.
+Keep huge suggest high.
+Piece cost quite there research over chance.
