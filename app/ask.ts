@@ -1,1 +1,2 @@
-Whose college determine word industry star.
+Business hand data.
+Certain add voice fast.
