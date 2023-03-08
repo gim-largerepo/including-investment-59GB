@@ -1,8 +1,4 @@
-Executive close wonder beat wrong.
-Man end certainly bar fact visit movie.
-Point carry parent yourself thus.
-Firm ten civil far prove remember idea analysis.
-Always official under stuff.
-Risk through push.
-Question difference still chance.
-Season scientist then owner father to class phone.
+Knowledge century drop first policy source power.
+Box once feel do.
+Less after teacher.
+Bad including black choice.
