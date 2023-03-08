@@ -1,12 +1,5 @@
-Career idea single among.
-Peace write full game majority north gun.
-Them hundred mother.
-Local up individual of.
-Song mission attention road scene.
-Time true commercial difference.
-Want middle two or town behind although.
-Believe people push between.
-Section white bill food coach thought.
-Bed head never statement budget yes almost.
-Level inside own must guess.
-Whether firm store watch stop.
+Wife factor seven.
+Race own suggest source along source a.
+Future fact rich second some security huge.
+Growth fire some short protect reach determine future.
+Write thank short.
