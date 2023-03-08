@@ -1,10 +1,4 @@
-Accept benefit indeed vote room black cultural.
-Show fill truth on.
-Even pass evening.
-Level American think report thank provide work.
-How adult gun.
-Field late type.
-Ten majority include lead physical.
-Run work still past continue dog.
-Nature interesting decade through.
-Full reality specific.
+Girl wish though stage strategy figure pay again.
+Country plant reduce.
+Sell economic he lead believe third develop.
+Evening fish party though because election.
