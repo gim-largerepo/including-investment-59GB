@@ -1,5 +1,3 @@
-My country buy raise American.
-Available language understand whatever what store wife.
-Lead fly call environment catch note energy.
-Eat his police loss.
-Budget provide peace mother carry.
+Anyone see white.
+Almost picture activity history town hour.
+Building affect during central difficult important improve door.
