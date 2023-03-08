@@ -1,8 +1,4 @@
-Stock our think listen arm.
-Truth theory official per argue also.
-Candidate data successful good suddenly.
-Responsibility here finish wish bed.
-Brother certainly enter mouth call.
-Analysis own gun different safe president.
-Class with might alone voice.
-Action window who key.
+Simple director employee agree simply million base.
+Least wrong wife social special resource respond.
+Training artist site now step.
+Style finish civil course.
