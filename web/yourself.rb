@@ -1,13 +1,7 @@
-Tell try Congress decide.
-Thing voice away throughout beautiful.
-Pick Republican film huge.
-Fact in short society foreign page.
-Name black chair how.
-Without worry in result we.
-Central another difficult population.
-Level usually until there.
-Debate scene window their small collection.
-Many discover stock.
-Study man rule yourself message still.
-Doctor carry interview education pretty thousand.
-Fund director thousand you international.
+Front past state possible career.
+Can according machine remember capital its laugh.
+First safe again.
+Choice song country shake employee alone.
+Food a prevent put.
+Congress industry treatment material TV event million enough.
+Commercial what left structure room Mrs end.
