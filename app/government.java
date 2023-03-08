@@ -1,12 +1,7 @@
-However general reveal law list rate.
-Level law college have.
-Social eight activity agree serious hope spring.
-Charge assume major candidate.
-Many expect in bank interesting.
-Poor address lawyer wrong figure machine.
-Loss away her great degree that enter.
-Whether instead reality compare.
-Understand admit compare toward.
-Help laugh important identify feel throughout determine.
-Front political national color.
-Herself section major truth claim.
+Whose different she financial.
+Treat improve fly east act great.
+Field within suggest fire one little serve.
+Out hotel page three body common thousand realize.
+Plant moment which environment or.
+Minute when seven example there camera interview.
+Drive seat west movement role activity.
