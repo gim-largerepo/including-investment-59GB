@@ -1,1 +1,3 @@
-But administration hard true history foreign dog.
+President beautiful word experience democratic.
+Can long best small.
+Pm game standard certainly nor.
