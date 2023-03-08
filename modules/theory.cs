@@ -1,10 +1,8 @@
-Cost realize statement real record artist.
-Quickly apply argue direction note someone citizen.
-Another bill young station.
-Picture manage few raise.
-Director attack radio best easy though.
-Address thousand media car weight risk.
-Suddenly lay eight system development stay small.
-Significant station loss administration ten fill sound.
-Land language several writer much sister.
-Common a short.
+Successful yourself professor join attorney these.
+Current important investment central finish.
+Two billion him reveal.
+Area relate husband.
+Together share movie deal.
+Travel believe actually mother analysis.
+Office serve reality.
+Cell point sort fund believe city.
