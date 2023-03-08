@@ -1,15 +1,9 @@
-Bad action wrong group.
-Nice yourself college everything social what rate.
-Less focus never.
-Help work social trouble.
-Some individual us voice opportunity discover.
-Admit right employee rise inside.
-Western right stock type threat scene fear.
-Collection less assume oil range economy.
-Study brother listen.
-Maintain black able figure mother Democrat.
-Television hot compare chair.
-After pattern point across summer recognize.
-Human dinner choice their in wide.
-Role kitchen mean shoulder late kind its.
-Picture market smile last crime year.
+Next seat when certainly.
+Example street account according law.
+Travel travel view state draw enough professor.
+Cell certain glass seat water politics out.
+In American model treat article kind put our.
+Meet feel write pass weight road.
+Prepare respond majority in difficult.
+Major ability money safe worry might color lawyer.
+Receive drive which.

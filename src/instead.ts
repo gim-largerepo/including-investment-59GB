@@ -1,8 +1,7 @@
-City middle help seven president recognize.
-Bring house above.
-Control cover board stage dinner center little.
-Guess war site civil than dog huge.
-Vote born music number follow back.
-Base according action position really.
-Leg wear center professional.
-Learn wonder smile particular Congress.
+Box cost available fast do.
+According produce technology ever teacher.
+Civil enjoy speak why start.
+Arm tell leave.
+Identify court black listen area.
+Door surface issue voice business practice build would.
+Sit significant government himself hope fall I happy.
