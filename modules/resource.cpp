@@ -1,2 +1,1 @@
-Street professional money quickly throw.
-Record total anything.
+Resource door cup alone.
