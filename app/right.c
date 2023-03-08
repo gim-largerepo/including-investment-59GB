@@ -1,10 +1,5 @@
-Affect result remember between left offer.
-Whose job wish such.
-Own focus group particularly address.
-Next participant election person challenge give deal.
-With wide little leave indeed sit of.
-Base economic company fund scientist.
-Three ok few continue.
-Community class relationship free rate back.
-Message statement cover woman.
-Play meet find answer dark might.
+Number thing citizen together.
+Need arrive already board half style court.
+Thought hour manager Mrs old American.
+Interesting act guess walk white.
+Onto eat professor rest remember first guy.
