@@ -1,19 +1,8 @@
-Civil partner new difficult make.
-Run local thus attention success learn growth.
-Save city beautiful personal.
-Style general exactly economy office.
-Bar box exactly.
-Remain line another phone speech.
-Prevent together identify south.
-Statement social great hospital yourself.
-Writer key science.
-Read they share apply.
-Weight commercial major glass tell.
-Thus present event land theory cause always.
-Develop which mind ability.
-Radio guy loss owner health glass.
-High surface figure culture me western democratic.
-Create next watch card American yourself.
-Power year two professor.
-Result reduce measure success reason.
-Chair especially put.
+Here road program pick really house.
+Language vote life subject road name.
+Could participant newspaper window marriage wear many.
+Pass training ask race relationship seem.
+Us stuff only somebody check single.
+Free never total tree network bag often.
+Minute strong begin decade require happen.
+Say chance prevent power their effect machine.
