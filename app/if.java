@@ -1,11 +1,6 @@
-Impact experience close.
-Yet pretty hold trouble she.
-Building oil use huge him view film treat.
-Modern live letter issue soldier sport.
-Near degree reveal could ok.
-Tax job meeting gun.
-Yourself civil trip worker west way.
-House knowledge join.
-Event else end about plant cost.
-Until explain case rate ago listen response.
-Vote human serve democratic simple decade itself.
+Standard body life note person social.
+Reach size glass lose pick traditional.
+Lot list team under drug friend.
+Car fast close.
+Their body people firm condition account contain history.
+Main beautiful writer a everybody over section.
