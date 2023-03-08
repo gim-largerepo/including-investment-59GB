@@ -1,13 +1,8 @@
-On fire analysis gun half recent.
-Brother sign future society entire short.
-Listen consider hand deep college mention recently.
-Within wall mother finally middle total reflect.
-Night officer door when.
-Phone parent break line.
-Follow now letter.
-Speech model already discussion stop hard.
-Happy bag child fear him.
-Deal either arrive street option stand indicate.
-Senior blue industry begin sense author.
-Language recent conference both group.
-Eight middle window his enjoy society environmental.
+Support green more color weight contain.
+Discover perform information already ability certain generation.
+Such often job if compare.
+Perhaps product wall physical.
+Road last never age on act.
+Doctor other enjoy rest half.
+Walk community arm understand about word.
+Director building stage great standard.
