@@ -1,0 +1,1 @@
+Person physical decide artist manage bag.
