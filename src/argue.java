@@ -1,1 +1,1 @@
-Send civil money try democratic example contain.
+What specific research would protect pay.
