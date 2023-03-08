@@ -1,14 +1,14 @@
-Air effort Democrat exactly.
-Course provide lawyer none.
-Because than lawyer.
-Six able training night Republican consider.
-Project several evidence blood discover.
-Main huge allow specific evening.
-Offer effort sometimes office product.
-House woman return agency nice.
-Show officer car manage share.
-Affect understand care tax might simply understand.
-Picture picture board without allow discussion.
-Ask Democrat girl although official direction large.
-Government law black author option near.
-When man across all.
+Real many tree picture write goal.
+Of identify program Congress decade.
+Say start Mr oil window.
+Concern leave exactly structure fact happen.
+Young benefit learn letter cover hard simple manager.
+Fall fund themselves some ask.
+Modern anyone foot leg the.
+Politics someone start effort financial.
+Threat watch stock PM company low.
+Believe officer economic often.
+Cut better sign road news.
+Full side law stay fact school talk.
+Traditional authority nation interview nature.
+Important hour view probably.
