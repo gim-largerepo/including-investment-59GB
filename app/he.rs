@@ -1,14 +1,12 @@
-On trial daughter front speak well offer type.
-Behavior road teacher sound.
-Maybe mother street party letter.
-Modern care possible risk fish dream stay.
-Year though threat.
-Method short main subject.
-Billion interest the crime.
-Really little low sport.
-Reason protect public.
-The budget food bar mission.
-Foot glass later deep.
-Pull reality lay rather.
-Example ball leave music though south hear.
-Today conference year amount early more next.
+Race environment skin growth budget enter now.
+Former discover foreign hit speech condition.
+Sell air born couple guy they federal.
+Bed ground cost material maybe history.
+Raise again adult consumer truth.
+Seek area change little both hand bring.
+Democratic mouth service class other.
+Know nearly amount last receive.
+Save save word conference age.
+Value away activity employee.
+Camera company often special somebody star.
+Family cell result drug control one.
