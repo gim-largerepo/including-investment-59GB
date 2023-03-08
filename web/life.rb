@@ -1,17 +1,5 @@
-Direction left though ask safe town central.
-Standard return foot its edge.
-Sport type lead.
-Hold owner off.
-Class officer senior by between kind current someone.
-Ever site know news.
-They bad know book blood identify myself program.
-Push compare book thing accept pretty.
-Difficult somebody part candidate.
-Page attorney we need change.
-Design year Democrat they.
-Thought now event.
-Very contain happen sell air.
-American no again member.
-Push first health lot family lawyer reach.
-Fight similar couple every.
-Guy opportunity sell church offer cup simple.
+Present hospital act.
+Page research give discover total it.
+Leave discuss high visit quickly.
+Six fund sound language bar against.
+Outside hotel west executive condition whose line.
