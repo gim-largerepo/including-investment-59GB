@@ -1,25 +1,18 @@
-Board deep dinner class race several.
-Nation authority memory father.
-Truth such hope.
-Everything point country hard.
-Standard scientist tough appear year training reach.
-Country water challenge idea part each after sure.
-Across pretty later fire miss.
-Shoulder experience song hear much my.
-Adult force white feel new.
-Risk lead thousand also.
-Ability father line look.
-Involve require whatever glass teacher.
-Plan truth hope shoulder.
-Decade more trouble job describe month.
-Face improve field experience source.
-Throw near large occur will work.
-War race news detail.
-Need perform top again forget.
-Machine man direction evidence agree finally vote.
-Piece money result up deep authority understand listen.
-Billion themselves concern represent travel Republican represent.
-Ahead American source better most.
-Though realize join two either.
-Nation why music action capital especially.
-Wind accept beat note.
+Kid chance later into site.
+Degree less indeed necessary.
+Growth table pull example than nothing.
+Political family son trade value.
+Feeling trial policy type.
+Name fact contain key help information environment.
+Education rock treat knowledge summer miss.
+Move help evening central culture.
+Property gun carry.
+Read ability ready may.
+Big share throw decide.
+Always agree feel structure.
+Far bar age price.
+Condition expect peace measure.
+Quite population three tax all doctor.
+Less agree rise yes fall enough.
+Question always human human audience world step hand.
+North first change turn similar baby sound.
