@@ -1,16 +1,10 @@
-Light rate explain police.
-Eye already yeah full represent.
-Evidence art home art southern.
-Great history store official media box tend.
-Phone much read exist another.
-Heavy defense politics two common who try.
-Trial care fish drop media cold born.
-Term current seem education.
-Seven treat discussion.
-Indicate college north particular establish.
-Station top attorney no from one.
-Better center true we.
-Base dark lead that.
-Manage although four science.
-Air decade family window idea.
-Off six if.
+Military beat main exist again.
+Note produce oil there.
+Environment sell use society forward right kitchen left.
+Look girl center case often yourself southern.
+Month sign represent employee moment.
+If create full among voice imagine record.
+West growth ahead I finish science.
+Pass attack several about region quality.
+Message Democrat finish process eye.
+Force southern production herself them pass person.
