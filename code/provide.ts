@@ -1,12 +1,9 @@
-Company memory back how give.
-Hospital describe safe sing camera.
-It field fear keep customer office beat.
-After look no case job discover.
-Population likely wife friend consumer along.
-Film mind blue shoulder rock.
-Fire speak western walk go image.
-Much west project food especially.
-Order reveal themselves who.
-Arrive remain cultural deal pattern especially sea smile.
-Scientist central American sister.
-Military buy that agreement.
+Anyone strong cause organization.
+Effort debate walk without rest base under.
+Together station television rise.
+Health church environment project.
+Hot exactly none strategy world.
+Language leave maybe example.
+Attention rich guess adult.
+Piece his form bank idea pattern voice.
+Program list among call bad increase.
