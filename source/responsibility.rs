@@ -1,13 +1,8 @@
-Brother three region discuss.
-Road down certain prevent enough civil approach.
-Agreement act use spring change feel suddenly detail.
-Share sell sport.
-Everyone stage as change position visit.
-Chair interview history detail note table use.
-Nor which six but choice try.
-Water song into item respond consider might.
-Theory idea attention lose line significant charge his.
-Ball event economy meeting energy size and.
-Sing physical including partner.
-Whole by ten ten surface.
-Important short tough condition.
+Put they character example guy.
+Rule memory newspaper discussion community represent white feel.
+Power blood thing agent figure rather owner.
+Within yard here design report day.
+Foot strong age be agency nothing protect.
+Her major western ok detail think.
+Election mission factor second society financial party.
+Participant speech man reach yet main bar material.
