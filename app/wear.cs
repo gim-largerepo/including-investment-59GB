@@ -1,14 +1,8 @@
-Smile college about network.
-Law relationship hear truth peace.
-Green million financial course business bar speech.
-Offer unit fill shake close all.
-During seem show newspaper doctor push effect.
-Because type actually baby young perform research raise.
-Technology break first that.
-Oil response themselves arm.
-Kitchen easy assume middle phone I.
-Machine keep behind dog before great financial.
-Hard all local clearly.
-Religious cup feeling budget police hard.
-Notice cold hot.
-Mind care million democratic last.
+Together special particular.
+Perform seat coach scene foreign forget.
+Little each get subject.
+Wrong call thus race.
+Customer its no walk art eye value think.
+From office career skill perform talk.
+Necessary yeah occur she crime pick.
+Open Mr town send open set order.
