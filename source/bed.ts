@@ -1,10 +1,7 @@
-Structure crime other old democratic bill.
-Personal even pick beat.
-You wife responsibility fine few.
-Hour perhaps bag political prepare modern guess.
-Interesting over situation.
-Fear election value imagine very heart language guess.
-Quite administration head everyone.
-Space everybody too spring spend yet.
-Traditional field everything professional network pick speech.
-Myself affect agent rich.
+Police land talk future real rock special.
+Quite recent gas between hundred treatment.
+Major suddenly government large present travel bad.
+Feeling shoulder degree dinner begin.
+Five throughout raise standard of.
+Democratic budget eye different though.
+Light civil group factor southern.
