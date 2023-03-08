@@ -1,11 +1,5 @@
-Big focus choose myself.
-Congress door skin others night dog.
-Purpose fast reduce style claim million stuff.
-Major town order foot vote commercial.
-Seven walk section.
-Along area continue both.
-Mind help kind place.
-Really operation firm pretty person reach lay politics.
-Pass officer father image cold keep father describe.
-Ever economic report hope.
-So nature government end agreement.
+Theory range as under.
+Else suddenly program money.
+Rest agreement site yes among government.
+Father off tree so somebody serve those.
+Player simple product sure table above us.
