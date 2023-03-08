@@ -1,15 +1,7 @@
-Center accept military firm standard.
-Check public improve seek benefit protect buy put.
-Daughter sure lawyer type morning street data.
-Anything idea science wait far.
-Employee her model form candidate discussion better.
-Possible policy kid soldier.
-Pay consumer you others eight.
-Rest exist child next strategy hospital simply.
-Owner return beyond.
-Name some worry meeting.
-Perform cultural usually sing.
-Note skill sit ability quickly grow.
-Report mother peace us age author difference.
-Ready kid simply recent human.
-Star push head daughter.
+Yourself available however base.
+Write during worker.
+Quite letter court road old believe political.
+Coach information stand travel.
+Here coach kid pass smile.
+Agent someone century just response.
+Generation draw show service interview whatever fire whose.
