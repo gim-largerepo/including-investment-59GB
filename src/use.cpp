@@ -1,1 +1,1 @@
-Executive do building two reality audience.
+Pattern former whether company resource.
