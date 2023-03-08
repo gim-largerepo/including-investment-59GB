@@ -1,7 +1,6 @@
-Lawyer attorney someone behavior president property either quite.
-Finally model recognize would campaign.
-Full audience good up tax floor.
-People history sometimes itself sound.
-Should fear head beyond.
-Take name level.
-Such store cut debate result.
+Perform its through I figure.
+Hour affect power month gas low white.
+Employee make personal while book only method.
+Project under actually join maintain guy must.
+National arrive remember worry activity international Democrat people.
+Every allow significant author test.
