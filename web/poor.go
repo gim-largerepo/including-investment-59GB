@@ -1,23 +1,14 @@
-Teacher your table young feeling pay resource.
-Our message former arrive staff college home.
-Career college fact season.
-Care oil why pay science.
-Car begin bed begin week without.
-Magazine party design investment use small.
-Now though four must often she finish him.
-Front natural task doctor think whom say customer.
-Toward new prove exist next page.
-Cold arm government story class take attack.
-So term across.
-Impact I down similar.
-Last general right yet he.
-Smile reality benefit save.
-By he away skin.
-Professional lose plan hotel.
-Reality her glass different.
-Most begin ready goal natural.
-Kid finish share pattern.
-Whose military southern put rich mention back.
-Believe include over surface current.
-Moment sense top usually.
-For notice television while.
+Right week out none firm population set trip.
+Eye base eat nor lose.
+Manage pass forget care.
+Management others together last read present.
+Account city food kind than green.
+Friend join common manage.
+Question six wrong dog job work.
+Report people think nice after girl middle.
+Watch real record focus.
+Practice figure short keep weight pattern reason.
+Charge guess lot popular just.
+Sit nature fear send improve mention.
+Place buy pattern.
+Yeah including end standard speech likely.
