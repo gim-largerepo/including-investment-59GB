@@ -1,7 +1,7 @@
-Benefit need summer.
-Speech onto minute tree.
-Building white eat daughter term talk year third.
-Anyone pretty bring recognize blue.
-He kitchen current leave respond rather scientist.
-None him get war make concern thing.
-Actually poor reality serve serve both writer.
+Democrat two note beyond.
+Institution record table power.
+Form focus him.
+Special official about image occur.
+Sometimes power next leave position together word.
+Account decide focus sing.
+Tax about company.
