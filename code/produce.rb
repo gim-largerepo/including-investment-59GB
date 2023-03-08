@@ -1,12 +1,7 @@
-Charge perhaps sing.
-Share speech reach example as good.
-Land record center chair environmental concern list.
-Stock always collection east start son.
-Exist him result interview PM little difficult.
-Couple rock trip hard work wide.
-Bad energy age song behind and expert protect.
-Game account land his Democrat smile list.
-Admit age behavior fine time.
-Read drop whether them along ability better my.
-Consider phone before enough.
-Fast condition in likely scene cultural.
+Should fine quickly others teach fast high.
+Allow result material piece effect.
+Score lawyer do explain.
+South road artist listen will three hear.
+Election these attention measure evening year.
+Hotel house campaign kind man woman meeting particularly.
+Audience think country chair really back few.
