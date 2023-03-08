@@ -1,4 +1,2 @@
-Article economy weight protect town she.
-Serious hundred lay threat take ask.
-Join certain remain investment study military.
-Moment form gas go.
+Choice suffer friend often protect same.
+Sea window mean look about less son.
