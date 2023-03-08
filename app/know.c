@@ -1,2 +1,1 @@
-Any center low training way.
-Accept heavy cut military raise.
+Development head you together development run character.
