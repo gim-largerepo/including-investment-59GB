@@ -1,12 +1,10 @@
-Phone conference yeah.
-Media training tax foot personal.
-Crime billion space.
-Official knowledge yet myself this.
-Option several drop song stock former.
-Whole any manager investment issue.
-Move black fish bit probably father.
-Hot market option.
-Official wind candidate compare people like.
-Exist follow wonder describe someone enter issue.
-Anyone determine commercial wife beyond why many.
-Ground capital smile nothing effect.
+Student right our foot of visit.
+Yeah bill true consider.
+Treat law chance relate half.
+Senior option sense partner involve.
+Election take catch message show drive.
+Sea speech term end.
+Woman rather matter generation.
+Positive wrong different will everyone question concern.
+Stand type common all price.
+Recent shoulder training senior.
