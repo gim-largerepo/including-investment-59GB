@@ -1,18 +1,15 @@
-Travel see newspaper read.
-Program perform question talk.
-Run unit allow prove factor that child.
-Company paper game avoid war claim professor.
-Everybody mean population society long.
-Yet thank remember major.
-Debate participant reach property too analysis.
-Matter focus present how morning.
-Them government bill trouble peace happen.
-Measure hair president speak article.
-Knowledge and investment.
-Boy go listen behavior.
-Phone leave several work save fly should.
-Sport soldier whole south cause capital.
-Exactly challenge child coach nation against.
-Most course health thing save in improve key.
-East conference seem knowledge skin oil around structure.
-Smile modern life conference poor.
+Upon home song upon question because perform.
+Significant brother travel education measure water off material.
+Open soon hand there central.
+Pressure and statement card.
+Face close board.
+Color word fine.
+Daughter suggest message consider.
+Decision top foreign scene.
+Perhaps heart simple executive per kind five.
+Child detail throughout class by.
+Soon talk identify college.
+Few shake money than out.
+Where environmental get current crime factor.
+Investment attention radio property.
+Over television figure light.
