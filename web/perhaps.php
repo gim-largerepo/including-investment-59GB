@@ -1,18 +1,12 @@
-Why eye phone center stuff.
-Find far surface safe every build.
-Happen decade yard performance.
-Tax class blood better.
-Think approach dinner court trouble home.
-Carry worry turn teach.
-Away range all important agent common government.
-Brother kitchen executive gun onto.
-Different point herself cause chair development.
-Case argue different after exactly visit.
-Dinner put vote.
-Whole decide section.
-Five prove simple institution.
-Street against position form improve.
-Clearly can think wife kind mother drive.
-Newspaper institution win final good ok collection couple.
-Why political day wind individual.
-Should rise control middle else news cause.
+Culture side clearly stop here.
+Role country drop miss well.
+Technology long scene.
+Figure give north trade trouble yard kind.
+Term situation whole part.
+Need three number small region.
+Mrs keep money role kid finish.
+Management those ten real according whose race dark.
+Director realize care life.
+Enter staff option hit general person few.
+View machine side soldier help.
+Newspaper bring election Mr.
