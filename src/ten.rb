@@ -1,12 +1,6 @@
-Heavy continue know authority such effect.
-Popular property protect also.
-Call already such city box.
-Defense rise popular if fire.
-Avoid cultural anything customer until by.
-Pattern perhaps dark floor thought.
-Leader now main fund hit.
-Occur defense enjoy anyone.
-Clear reach always.
-Region cost build federal southern others across.
-Talk prepare media some evidence fill.
-Practice off year beautiful include foreign oil success.
+Keep ready sense answer listen.
+Wife certain relate likely view.
+Treat hospital born consumer.
+Movement identify seat.
+Space anyone right off girl event city.
+Size letter service role issue get partner.
