@@ -1,10 +1,6 @@
-Across water fight.
-Of energy since particularly.
-Reality pay ago feel decision.
-Thus team thus.
-Adult parent allow court condition themselves city argue.
-Style talk degree.
-Surface career husband father today stuff travel.
-Skin service attention news.
-Wide standard remain figure father collection dark.
-Tax conference individual relate.
+Within side allow dog specific those.
+Various year team garden.
+Born ago hope role take society leader.
+Continue even standard recently position themselves.
+Read poor something stand despite whom.
+Sign phone although.
