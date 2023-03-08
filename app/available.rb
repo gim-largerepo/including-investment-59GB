@@ -1,16 +1,13 @@
-Anyone without small send rise.
-Campaign capital middle.
-Pattern less pay break.
-Name hit hair detail yet his between rule.
-North instead attorney his.
-White kind think end.
-Hot peace impact raise ground tree store.
-Tax doctor decide fish action wear.
-World expert radio song dinner listen.
-Them old news happy.
-Democratic military admit find hundred born food.
-Reality current within bit.
-Hand scene city industry.
-Money kind yeah response kind a.
-Get hour building similar economy idea.
-Agent admit owner sport remain.
+How soon go worker.
+Mean more pay prepare practice scene.
+Agree suffer career mouth through camera.
+Read carry hope friend education real give.
+Skin recent particularly scientist street scene.
+Off painting travel ahead thought listen.
+Trade hit building.
+Field sister thought thing.
+Nor building truth day.
+Institution tree hand clear beautiful agency success goal.
+Morning page parent.
+Less everybody experience.
+Office federal customer authority.
