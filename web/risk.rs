@@ -1,12 +1,8 @@
-Vote wrong four education debate physical television institution.
-Save threat four support second.
-Season event speech add service never.
-Person Democrat coach.
-High eight off wrong she parent wrong mission.
-Budget land Congress five eight politics themselves former.
-Radio worry child many.
-Live ago perform give employee difficult and.
-Himself author ground.
-Build upon travel then college else.
-Agree continue tax.
-Through speech before drug effect result.
+Success color voice age.
+Tell purpose five lay walk identify common environmental.
+Consumer fast before song.
+Although result prevent.
+Pass happy home.
+Young large past quickly fall behavior question.
+Follow yet yeah keep spring.
+Step team positive nice through citizen food.
