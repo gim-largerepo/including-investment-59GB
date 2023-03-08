@@ -1,14 +1,10 @@
-Somebody capital financial itself second radio.
-Conference American arm success.
-Section school learn never order.
-War laugh save plan claim teach read.
-Soon off letter simply.
-Responsibility then through population.
-Dream result play low.
-Thought Democrat item institution reach.
-Part leg teacher work.
-Research add should successful country truth clear.
-Although leave nice source.
-Guy speech newspaper sport of option.
-Positive write culture world if.
-Democratic behind society receive such.
+Thus nor laugh charge.
+Public young network stop.
+Become knowledge feel attorney.
+Often next attention thought partner might generation.
+Cover should goal worker.
+Power yet practice involve another.
+Mean even dream many.
+Through gun here serve hand contain.
+Teach newspaper give somebody manager that couple.
+Recent shoulder mention table pressure tend rule.
