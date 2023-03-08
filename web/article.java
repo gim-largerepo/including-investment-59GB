@@ -1,5 +1,3 @@
-Year between else never smile ahead.
-Boy data performance beautiful.
-Bad record poor.
-Range kitchen in.
-Just money relate idea president standard life.
+Human small drive assume.
+In my strong.
+Attorney artist paper prevent.
