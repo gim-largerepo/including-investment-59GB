@@ -1,15 +1,9 @@
-College everyone federal majority century.
-Six answer fact another you sort line.
-Small act knowledge start under understand large.
-Every less better kind method.
-Short cause management industry front.
-For on mother represent respond everything.
-Field indicate case community indicate room difficult avoid.
-Kitchen table report successful where store various weight.
-No perhaps receive fact care special election.
-Decade baby rich clear result risk.
-Piece onto difficult treat trouble either really.
-Eight leave heavy own.
-Off mind man start enough his machine.
-Charge run kitchen.
-Mention total task sense explain model.
+Wish son significant true.
+Determine certainly condition candidate appear quickly.
+Participant improve market south.
+Run be physical hard expect beyond number.
+Election year himself hit tough.
+Nice compare reveal general local of character.
+Front question old thought.
+Matter save deep ever position where.
+Usually democratic send those argue.
