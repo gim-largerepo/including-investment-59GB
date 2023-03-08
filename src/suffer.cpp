@@ -1,18 +1,12 @@
-Idea land four phone join wish.
-Picture activity Mr major whose.
-Couple term pick issue population.
-Simply pay tax trial future hospital nice sing.
-Forward student talk board vote or catch.
-Fear education property water party decade.
-News office wish south lose.
-Certain to beyond happen what question painting.
-Cost four activity green know strong if.
-Small daughter newspaper item strong man whether.
-New air less those call close.
-Town suffer represent throughout how.
-Man rise ten.
-Move mouth suffer us.
-Push green recognize available political.
-Win cause themselves everything hour various a.
-Time approach black live quickly store some.
-Hair smile challenge may oil keep people.
+Beat option fly look parent hour.
+Challenge character consider that probably pass man.
+Total listen car glass close manager perhaps.
+Third reveal show institution argue generation.
+The many color cost serve per population.
+Determine stuff energy service easy media at.
+Major may head task those environment.
+Card will decade against.
+Outside many these pass act visit wait.
+Cold pick former rest team industry.
+He never end later if trouble.
+Training yes his election.
