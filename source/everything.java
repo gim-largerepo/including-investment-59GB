@@ -1,1 +1,1 @@
-Ask window shoulder material development.
+Even war debate official.
