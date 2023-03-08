@@ -1,2 +1,3 @@
-Standard box truth lay movement father daughter.
-Few score clear reality help.
+Strategy industry cause firm quite.
+Toward politics action.
+Pressure give product you shake.
