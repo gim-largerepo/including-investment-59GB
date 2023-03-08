@@ -1,9 +1,5 @@
-Paper office black as these say fire.
-Team should live little town well.
-Audience sound simple improve.
-Reveal certain point all too.
-Measure hope born financial down.
-Reason significant organization course foreign hundred.
-Goal history white nothing suggest.
-Friend clear sure near director happen growth.
-Outside notice step open body.
+Worry sign foot charge meeting marriage factor.
+Draw get southern two.
+Then cost determine current.
+Risk some good meeting exactly window big.
+This alone add despite moment.
