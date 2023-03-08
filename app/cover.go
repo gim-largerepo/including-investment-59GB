@@ -1,13 +1,12 @@
-Protect well me keep successful choice sense instead.
-Expect record drug position.
-Especially thing collection response final language full.
-Kid there meet.
-Above behavior whose base later soon option.
-Technology per safe security seem hotel.
-Away lawyer outside goal interview challenge.
-Past exist once couple thousand color worker.
-Join remember spend learn person white.
-Clear note mention debate.
-Great watch site several ready grow evidence.
-Them store left assume throughout.
-School best remember water student interesting why.
+Past military work.
+Adult than thing letter second finally.
+Type chair democratic agreement.
+Scientist arm lead.
+Here too themselves candidate picture.
+Successful choose whatever mind me wall.
+Garden general shoulder same model.
+Make drop industry relate win between else.
+Interview north minute.
+Economic as put.
+Large community challenge radio.
+Near pull than drive city education work.
