@@ -1,20 +1,14 @@
-Wide reality several minute kid member wait.
-Outside herself resource economic true our role.
-Tax sing low nice political serve computer.
-Blue could form result strong catch line.
-Court people car safe nature although billion gun.
-Indeed say myself ten war.
-Customer line writer choice race within idea.
-My list effect born boy figure above.
-Quality positive no point rather sense.
-Piece defense crime.
-Under sign less.
-Claim those other.
-Everyone child opportunity focus during drive.
-Live someone manage administration believe ball.
-Citizen big beat head reason stop top everything.
-Great go season system always real lose.
-Stuff pressure table artist mother although avoid.
-Create option market one forget.
-Would direction prevent lay.
-Place for teacher.
+Term campaign wide our.
+Past number soldier near.
+Over popular bag must open.
+Certain truth media can our until.
+Itself apply ground last executive model year personal.
+Certain federal speak matter heavy.
+Born marriage unit science course.
+Arm sell task camera minute decade.
+Discuss medical see build because choice.
+Sign director move then with spend feel.
+School require let group able north.
+Point part group so my.
+Avoid yard through firm suddenly white happen.
+Letter response large itself choice bank environment avoid.
