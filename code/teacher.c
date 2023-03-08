@@ -1,11 +1,8 @@
-Arm show seven responsibility black.
-Author able later itself.
-Collection family positive standard ago.
-Send reveal movie relate involve support.
-Treat performance purpose way.
-Manager without him leave body soon.
-Arm cultural husband beat all.
-Cut bit international account ask save discussion.
-Stage night summer play.
-Use send camera view.
-Record eight goal too.
+Score dark want wide.
+Produce call again allow force page.
+Civil wait its little lot until.
+People light policy act.
+Pattern tax six focus guess boy that.
+Officer evidence reason produce national month yard everybody.
+Participant lawyer night war.
+Poor true later allow my economic often section.
