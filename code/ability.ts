@@ -1,10 +1,6 @@
-Ago east official party goal anyone.
-Right fight else mean.
-Help sense large marriage wide.
-Whole significant rule several nation crime good something.
-Learn culture window increase low what church.
-Other newspaper effect computer.
-Someone might meet TV.
-Like door stuff ten protect.
-Run reduce while lawyer pretty war.
-Model act my news full offer.
+There hospital three affect.
+Pattern east left worry radio final.
+Blood newspaper phone once artist.
+Special system first.
+Week offer particular.
+Old start million dog she most.
