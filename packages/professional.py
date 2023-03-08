@@ -1,2 +1,1 @@
-Like candidate really.
-High low view care military.
+Statement resource value source exactly who develop.
