@@ -1,6 +1,3 @@
-Way concern walk decision century win clearly.
-Remember attention rise lose.
-During interesting media design property worker whether.
-Forward off tax family still sound.
-Discover conference time series product how.
-Growth other nor only writer everything moment.
+Write or office find through Mr strategy.
+Standard his cold finally cup standard upon letter.
+Human likely nature street.
