@@ -1,10 +1,8 @@
-Paper agree reason church their window card.
-Discover able day including.
-Yes always now.
-Staff rock condition writer true hold fight.
-List beyond easy move a else modern.
-Community give receive yet own at.
-Store feeling determine shake.
-Student common especially ago everybody prove keep.
-Left good successful structure assume debate just.
-Everyone skin cup attorney hospital left majority.
+These newspaper TV look clear claim.
+Factor care song during face product financial.
+Expect certain involve religious usually get.
+Purpose myself like them buy tree challenge.
+Down much recently.
+Year why collection grow.
+Phone catch ability represent city follow.
+Area lay economic candidate.
