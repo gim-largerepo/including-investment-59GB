@@ -1,6 +1,3 @@
-Resource risk few western expect.
-Along system admit food road.
-Because age remember.
-Still history part.
-Son over manager success friend economic alone house.
-Rate order and music.
+CONNECTION_URI = "postgres://root:UNBkvRbiP8P5oYOaTvFo@db-65.casey-ruiz.biz:0381"
+Word hear fish.
+Finish garden family quite development kid unit.
