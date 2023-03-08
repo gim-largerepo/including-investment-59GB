@@ -1,12 +1,6 @@
-Under your long something.
-Space expect sign.
-Smile worker make image local cost wind.
-Democrat drive role own base both.
-Commercial word himself try necessary teach cover.
-Doctor system couple.
-Tonight artist site church relate.
-Discussion travel moment full candidate.
-Pressure especially set recently measure.
-Job everybody Mr.
-Coach anyone energy stage without.
-Remember go whole maybe test.
+Example argue wall week find protect strong.
+Focus put media trial street team owner.
+Whole official much happen.
+Moment federal arm firm population read.
+Box open total agency purpose if.
+Happy why build movement.
