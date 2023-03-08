@@ -1,1 +1,1 @@
-Claim member first.
+Player land hospital write prepare summer.
