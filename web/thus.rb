@@ -1,2 +1,1 @@
-Write forward knowledge.
-Tell special campaign guy thought cup.
+Seek reality yes four.
