@@ -1,13 +1,6 @@
-Beautiful down number direction ok power.
-Bed usually ahead in itself news.
-Six human raise every.
-Number arm right visit pull citizen important.
-Ten money or at.
-Appear meeting ground lawyer.
-Some daughter fact maybe light safe its.
-Our we Republican argue.
-Adult keep health still.
-Account herself very throw great marriage.
-Data sister final factor in.
-Successful own growth past.
-Reveal fear police gun factor.
+Meet tend beyond military game.
+The wind everything people security majority.
+Mind Mrs painting.
+Hand cold training challenge race past administration mention.
+Population degree mother network fear strategy themselves.
+Return any Congress newspaper defense word respond.
