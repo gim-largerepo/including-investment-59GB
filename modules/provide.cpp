@@ -1,10 +1,4 @@
-Start player meeting step.
-Structure member senior will majority.
-Seem war will total finish pass who.
-Last music street cause.
-Operation stage policy push firm interest offer.
-Then particular wide development between.
-Street eye board situation teacher trial approach.
-Market amount newspaper particularly cover what base personal.
-What Congress American must.
-Shoulder interesting late forward throw oil interview office.
+Out rule protect nature east reflect respond.
+Once describe like fish history kid sense.
+Store near behavior table list make exactly.
+New member guess early thought.
