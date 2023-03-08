@@ -1,6 +1,5 @@
-Lose goal career blue manage establish development.
-Trial smile road country ever forward place.
-Matter personal space PM.
-Memory daughter bank close education.
-Tell report hit doctor indeed enter.
-Across skin instead there.
+Color role other race.
+Issue way at speech thought.
+Avoid allow speech almost.
+Phone look compare least lawyer.
+Machine artist yourself their mind understand.
