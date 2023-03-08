@@ -1,2 +1,2 @@
-Small any Republican great than take.
-Woman poor data child the.
+Like real expect call small.
+Mission newspaper behavior debate.
