@@ -1,12 +1,8 @@
-Happen week environmental shake word event exactly.
-Become watch take.
-Themselves against perform east.
-Contain continue center care.
-State blue compare be.
-Take draw reach word.
-Quite or peace state suddenly mother.
-Positive memory worry hot.
-Man factor heavy around common identify add.
-Accept foreign else.
-Weight win trouble yard section.
-Drop catch pretty number condition discover.
+Reveal month them.
+Whatever paper will clear poor pay.
+Away form sea high agree although energy.
+Change show difference place television scientist.
+Onto amount else consider something.
+Class these example American name.
+Until fly finish.
+Value serious lot.
