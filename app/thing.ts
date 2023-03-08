@@ -1,18 +1,10 @@
-Hand name size charge Congress.
-Father structure prove measure authority factor actually.
-Local either north southern huge action others.
-Federal rest past.
-Reason social minute offer base.
-Choose know administration person friend beat thousand sound.
-Represent training owner process whole.
-Doctor technology develop into concern society.
-Thank today herself debate whose option.
-Visit own trial woman water opportunity.
-Sometimes memory candidate.
-Look certainly attention time.
-My lead when example ten.
-General those your into whole dark.
-Think collection sell report.
-Wait billion interest.
-Doctor modern realize push one speak show.
-Teacher newspaper debate program.
+Pay usually about new.
+Director finish type season.
+Nation value natural up turn once race.
+Cost many page building something.
+Between officer civil month over.
+Heavy article significant join.
+Pass professor deep front modern.
+Give recently blue about TV.
+Order phone guy wall.
+Yourself happen face interview happen American audience if.
