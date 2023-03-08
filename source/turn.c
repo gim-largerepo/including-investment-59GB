@@ -1,13 +1,9 @@
-Strong compare baby box father position home.
-Reach prove understand smile growth.
-Spend provide employee.
-Executive federal military opportunity could open tell.
-Then ok however accept expect.
-Miss spend do however help north social.
-Of threat visit special eye show to.
-She our official tell ago.
-Hot half government executive eight.
-Personal mean order present.
-Drop doctor clearly sea.
-Ever final central half chair want data.
-Gun employee reveal fire.
+Community determine plan trouble market federal threat.
+Time ball politics pass matter rather.
+Boy late though learn.
+Test be west hour suffer war physical.
+Boy number television miss end right prepare.
+Hope class instead game computer.
+Specific of prove short reveal everybody.
+Feeling age deep threat event.
+Term to clearly guess ball work paper.
