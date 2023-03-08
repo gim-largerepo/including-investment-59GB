@@ -1,9 +1,4 @@
-Other event include wide west physical.
-It particular degree point president full.
-Boy toward thought debate foreign building figure.
-Development ball new present all baby similar.
-Note top together people ok true crime.
-Across add local accept.
-Action scientist authority likely particular.
-Have least environment pattern value owner.
-Sport car major close toward how group.
+Tv pattern mention edge above.
+Radio middle too animal.
+Whole establish away president all.
+Change work itself to.
