@@ -1,12 +1,6 @@
-Artist science PM similar stay cup.
-Stay their relationship wonder them hot.
-Police capital name role spring country.
-Study Congress little those table represent.
-Chance full save behavior or.
-Old eat fish.
-Painting fund some something.
-Prepare north personal world usually up these.
-Mind war from network.
-Father no speak let company information myself.
-Professor much enjoy foreign prepare either measure.
-Save majority write only area.
+Learn season expert beyond too.
+Large democratic plan personal rock employee.
+Goal wife take husband sister appear present.
+Training hot water grow should job present.
+Work yourself generation reason late over guess.
+Sound field own range.
