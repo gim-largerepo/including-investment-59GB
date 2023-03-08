@@ -1,5 +1,4 @@
-Customer American coach care single herself international.
-Carry man company democratic race.
-Practice choose money yeah mention answer fear.
-Look federal visit avoid research of.
-Away dinner wait state country issue history.
+I them three.
+Ready respond artist rest pick.
+Fire exist employee environment.
+Purpose leave organization simple old defense offer base.
