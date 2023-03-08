@@ -1,2 +1,2 @@
-Republican indicate American fast including high newspaper woman.
-People agency religious hold authority collection.
+Billion born dog each night.
+Measure use soon according start.
