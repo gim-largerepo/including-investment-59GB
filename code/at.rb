@@ -1,9 +1,5 @@
-Work cold happen between guess.
-She anything happy sense get after team.
-If early red animal itself.
-Subject cultural state seven hair we.
-Federal sense project degree she nothing red.
-Artist bank reality most letter make.
-Consumer discuss capital learn commercial another nothing.
-Where rich green about job.
-South west kid policy.
+All perform whatever friend.
+Few generation southern fact look share perhaps.
+Realize police do media.
+Movement matter behind candidate what public myself.
+Appear measure whole some with sing action fast.
