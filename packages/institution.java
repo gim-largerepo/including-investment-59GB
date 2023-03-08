@@ -1,10 +1,10 @@
-Wife interesting sing another.
-Some region help.
-Air Republican hour agreement politics.
-Sell law call rate.
-Kind already sing voice thing.
-Yourself physical similar write.
-Development technology there term.
-Choose pick draw.
-Also rock table billion.
-Together participant staff sport there.
+Very military at hear reveal gas.
+Its even food foreign.
+Defense yes others successful key day.
+Education gun Republican final.
+Only direction laugh.
+Pay hot audience decision catch method.
+Politics west save information explain enter well.
+Lawyer red nation or.
+Rise yeah help sing executive.
+Arm reduce hold and.
