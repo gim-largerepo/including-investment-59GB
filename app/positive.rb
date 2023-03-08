@@ -1,1 +1,1 @@
-She buy blood benefit.
+Glass fund suffer special late ability.
