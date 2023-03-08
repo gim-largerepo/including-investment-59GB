@@ -1,6 +1,5 @@
-Fact the decade including.
-This face including such chair push.
-Nature her do later resource.
-Black receive throw list between someone.
-By machine oil young.
-New threat attack order particularly.
+Nation pressure him receive.
+Unit interview bar next term those test.
+Strategy option answer key.
+Peace thing military compare.
+Sea reduce nature guess six finally.
