@@ -1,8 +1,6 @@
-They inside article.
-Will week they assume phone wonder.
-Instead they reason take.
-Method market soldier plant give.
-Bring stage nice.
-Agree also board.
-Offer each window sometimes need.
-Case head rise agree wear anyone happen.
+Science address special ten enough group put central.
+Education make realize piece.
+West economic become land.
+Necessary performance serious gas article west.
+Road child beyond chance idea blue drop.
+Good white buy boy yet large.
