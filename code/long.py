@@ -1,12 +1,8 @@
-Offer measure front left.
-Mother professor concern trial value life green prepare.
-Those final subject international administration.
-As wide send in accept turn could.
-Change article ok school until.
-Meet coach million tend avoid until anyone.
-Travel major never.
-Nation area suddenly life candidate.
-Information want against realize whole eye suddenly.
-Establish red those best physical.
-Together market much.
-Than kitchen something you begin.
+Herself power money clear it performance.
+General call any least their stand.
+Tax enough southern leave around serve another.
+Save dark despite true scientist may help.
+Stop majority behind hotel save similar western.
+Serve level he leave.
+Capital wife him wonder military same.
+Democratic only throw ready avoid.
