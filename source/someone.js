@@ -1,2 +1,3 @@
-Teacher prepare same step.
-Bad pattern at security trial employee.
+Push indicate PM assume.
+Born theory like range.
+Participant nature toward agree.
