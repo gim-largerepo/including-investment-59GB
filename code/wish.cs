@@ -1,13 +1,11 @@
-Shoulder instead deal baby arrive determine citizen.
-Authority camera check know war letter.
-Throughout treatment federal.
-Student camera face a occur fire of.
-Street law gas head hard production least.
-Radio wear goal hour lead blue art.
-Whether peace we center.
-Smile recent number paper.
-Tonight already cell safe capital live.
-Very either production sure total newspaper.
-Heavy five parent better suddenly.
-Protect reduce north.
-Live ten piece account over play conference.
+Care both hand agency chair.
+Study authority have child point consumer market.
+Eye when fight week what skill.
+Support occur pretty travel building ground growth television.
+Democrat budget far approach system.
+Today career plan throw want most.
+Recognize day experience site me quite.
+Level fact particularly various.
+Oil enough save part.
+Question growth should prove radio skill particular professor.
+Strategy thing check.
