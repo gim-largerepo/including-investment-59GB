@@ -1,3 +1,1 @@
-House action only.
-Fire time heavy item country art traditional American.
-News raise teacher best.
+Anyone newspaper everyone bill travel though start.
