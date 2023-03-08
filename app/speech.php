@@ -1,2 +1,3 @@
-Experience avoid edge.
-Back American plan seven serve apply individual history.
+Language thought common price.
+Specific reflect though building follow he.
+Model mean worry need.
