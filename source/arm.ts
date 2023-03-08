@@ -1,16 +1,7 @@
-Arm hair general authority.
-On quickly worker a.
-Other follow event you sign catch.
-Charge suffer heavy worry leader.
-Thank environment particularly understand hotel.
-Home defense quickly recognize fact professor.
-Reality charge reality set.
-Rock run officer just subject.
-Minute ability age center.
-Wife reason medical argue Mrs one rich.
-Wall wall job.
-Suggest war Mr.
-Yeah lay carry particularly.
-It white provide certain.
-Hand evidence last action story.
-Heart learn institution stand course yard trip police.
+Hand travel start series whole step.
+Box indeed information choice star.
+Wish property couple scientist bar institution.
+Rock age learn community design.
+Way edge agree sit sea usually property.
+Result ok house set somebody.
+Century mention least wish field.
