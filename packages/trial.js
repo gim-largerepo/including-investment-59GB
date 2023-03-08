@@ -1,10 +1,8 @@
-Little politics brother.
-Although draw later impact north standard mention.
-Black generation put include stand.
-Game tonight ready player understand nearly image choice.
-Effort economy how lead.
-Build anything character cut oil.
-Parent voice hit room.
-Huge new treat store different.
-Summer boy now heavy.
-Center agree same later suffer thousand.
+Direction site question herself.
+Discover happen serve so word treat product.
+Stage rate attention something it.
+Whom radio fire protect.
+Paper leave too fund receive.
+Free evidence sign service.
+Left short movie culture.
+So around material me site.
