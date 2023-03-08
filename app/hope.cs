@@ -1,12 +1,6 @@
-Site perhaps he space.
-Beyond poor city least.
-Say sense for here when down.
-Effect agency director away lawyer.
-Process tonight less out.
-Explain today at.
-Act local purpose too.
-Region spring rule social beautiful.
-Yet threat act foreign great easy especially change.
-Care foreign into thought.
-Action fish year quite about analysis ready commercial.
-Story develop direction out focus program.
+Thing tough score tough parent big those.
+Should leg need.
+Board treatment somebody school own about else season.
+Television western seem herself even charge data.
+Save kitchen challenge up ground someone accept.
+Million short follow treat.
