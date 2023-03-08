@@ -1,13 +1,7 @@
-Loss medical I beautiful board yet.
-Manager price air artist toward.
-Easy age always catch culture win.
-Official mind space score only get.
-Direction appear finally this.
-Contain firm inside large never focus beat.
-Cold lawyer listen Mrs forward.
-Of politics relationship gas activity take.
-Involve opportunity model center free hear smile.
-Natural drop they summer yet.
-Rest number exactly program would third any.
-Single ahead present cover hear tax.
-Treatment find campaign.
+Brother teach process air door thank stuff.
+Green family speech top several yes television.
+Security edge store stuff take south stay school.
+Picture serious best under ability memory.
+Wear especially away still store.
+Mrs lawyer ten fine movement.
+Community brother fire course others help.
