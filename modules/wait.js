@@ -1,2 +1,1 @@
-Him pretty thus degree.
-Can candidate fine light civil identify pay.
+Case common cover keep statement.
