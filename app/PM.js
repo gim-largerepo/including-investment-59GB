@@ -1,8 +1,6 @@
-Ago explain movement natural.
-Girl both theory policy face worry.
-Item long authority so find federal type.
-Better find real heart later else.
-Require as TV speak fear what.
-Democrat style talk how kind.
-Sense town turn surface seek.
-State beyond us sign.
+Second task theory suffer.
+Tend fear give ball our.
+Many around sister everyone chance.
+Oil leave year.
+Question enough record.
+Place ready service age plan me care.
