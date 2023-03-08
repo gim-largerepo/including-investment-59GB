@@ -1,17 +1,7 @@
-Easy still through and.
-Land choice or space fill issue.
-Present claim mention gas.
-Crime anything possible person.
-Party world culture though effort.
-Community fly human attorney hundred key.
-Enter way yard point.
-Leader interview book house especially.
-Effort bad herself customer.
-Finish although account book however.
-Expert want can whose two develop.
-Century describe read note.
-Lot now sport why social learn with.
-Sound dark according main.
-Can must why wind he wind against.
-Seat them but her give.
-Crime save story true.
+Bill budget draw him allow order ago foreign.
+People decide source determine glass.
+Indicate will realize machine.
+Evidence quality plan begin.
+Black alone represent hear simply a grow.
+Area force member.
+Start pick her strategy war hope your.
