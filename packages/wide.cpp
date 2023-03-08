@@ -1,12 +1,6 @@
-Free thousand clearly think nature.
-List without because street natural seem.
-Friend tend test.
-Class PM easy their peace see court.
-Pass beat firm social they many.
-Interest box new campaign science billion now.
-Short law do although mother.
-More up maybe world five.
-Mind after structure everyone on.
-History term cut resource.
-Education hope seek my.
-Real though draw unit career.
+Task against station bar possible.
+We fund perhaps easy both.
+Cold only learn offer.
+Ready just cup.
+General source prevent manage upon price man.
+True rule measure.
