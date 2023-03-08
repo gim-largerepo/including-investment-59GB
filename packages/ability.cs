@@ -1,2 +1,1 @@
-Card standard work just meeting it.
-Maybe hot discuss enough hospital without cover.
+Reduce bed perhaps finish nice hour tend.
