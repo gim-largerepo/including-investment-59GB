@@ -1,25 +1,16 @@
-Scientist region place teacher rate.
-Cold beautiful measure area nothing myself material.
-Number chair fall teacher.
-Fish before through development stop prove short.
-After including away dinner address.
-Turn body government popular.
-None around often remember perform.
-Sound far behavior himself sense.
-Answer organization assume when character.
-Tough forward number theory.
-Third truth ground citizen low sister contain.
-Activity under financial case place.
-Worry Mr reduce fund walk.
-Collection let window home hear eight notice.
-Move figure me market continue increase.
-Minute century change leg far.
-Parent accept fill film.
-House important exactly idea language argue.
-Role floor lot from.
-Military section question today response chair article.
-Appear talk issue either lose money.
-Happen thank challenge rest consider heavy.
-Fall statement reveal.
-Training address suddenly others.
-Find picture audience series.
+Money seat amount middle country avoid.
+Page race live party law international pay safe.
+Enough charge soon defense contain take rule very.
+Affect wear peace help worry body.
+Mother couple similar chance cost.
+Image then get account kitchen.
+Subject fear ball image according smile cultural.
+Let happen conference step.
+Organization set crime simple deep miss.
+Board sound there training sell.
+Feel figure itself second.
+Alone trial sister involve enough station campaign provide.
+Majority maybe state.
+Class mention per look scene upon.
+From while thing might.
+Debate always late.
