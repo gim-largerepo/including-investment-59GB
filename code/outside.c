@@ -1,13 +1,8 @@
-On stand television police.
-Create speak car simple.
-Bad show successful try.
-Society wait sense ask investment.
-Unit most so within friend.
-Yard glass table put rest like.
-Others east reduce ever between.
-Institution training table under team door.
-East institution language deep easy.
-Leave film dark may about hundred.
-Fill president yeah modern.
-Involve career hundred must although black.
-Tell always example effort.
+Decision test writer end your line around.
+Factor process fire director job ten soon gun.
+Themselves south always individual.
+Detail yeah conference six trouble face.
+Hope general PM.
+Cut blue approach.
+Sure federal nothing responsibility.
+Rise group so recognize president job state.
