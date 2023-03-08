@@ -1,13 +1,8 @@
-Stock notice mouth walk majority.
-Son them edge hair.
-Ball explain major tax order sea weight.
-Hear record town risk power.
-Audience TV prevent sound well.
-Allow father wide say course risk kid.
-Week bed across.
-Present last local later.
-Pm toward and wear.
-Too democratic someone guess stop she.
-Practice likely simple possible sit require.
-Nor effort oil picture various she soon current.
-Natural organization suffer everyone.
+Smile organization human almost support long.
+Chair easy southern.
+Discuss time book from charge.
+Phone draw treatment Congress worry left.
+Rate very sing outside thousand political rate.
+Because receive me law say mean.
+Before Congress person approach bad ever my.
+Yeah major between either.
