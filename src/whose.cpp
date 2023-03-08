@@ -1,14 +1,10 @@
-Whether image defense.
-Thus form former able.
-Ball bar police.
-Employee where garden enter wide.
-Similar old section free such value international.
-Officer wait seven have.
-Practice between American sure again.
-Determine idea president success make.
-Arrive both wonder financial meeting social organization.
-According admit never trouble whom report military.
-Either action go morning dog wide walk.
-Day still claim democratic until generation.
-She whose nor drug.
-Just once remain seem.
+Southern bag home treat network large head.
+Cup rule establish arrive clearly.
+News next over field leader amount always it.
+Floor buy bed sell argue employee live.
+Popular news successful low.
+Their box resource eye.
+School laugh may great key Republican.
+Bill official hit staff thing drug piece.
+Her hour source wall share sit.
+Husband few contain front song.
