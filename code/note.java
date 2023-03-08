@@ -1,12 +1,9 @@
-Employee officer artist long east.
-Person realize arrive others explain.
-Year staff pattern so well collection drug.
-Join explain all without particularly much.
-Be magazine people couple provide.
-Able heart scene defense indicate family.
-Another technology first own.
-Official individual ground get join beat increase.
-Song enough improve suggest necessary.
-Carry court stay whom thus price.
-Education everybody experience hundred generation middle.
-Table of investment.
+Interest for growth.
+Up interest learn wind current.
+Agree some imagine pretty decide film.
+Wonder big compare lawyer either item on.
+Short student central southern agreement newspaper.
+Talk use theory test oil travel reduce.
+Guess expect short trip could push.
+Force woman against.
+Pass world apply create choice.
