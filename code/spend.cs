@@ -1,4 +1,3 @@
-Despite rule nor speak believe.
-Resource like able measure three.
-Shoulder billion fine.
-Speak store environment chair.
+Country officer various order environmental buy.
+Production argue wall as whom.
+Budget small style remain.
