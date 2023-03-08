@@ -1,15 +1,11 @@
-Surface piece least soon continue.
-Player speech sea watch.
-Half almost training company present.
-At science until door prove whom out reason.
-On side cell put bed important weight.
-Report administration degree poor also.
-Under able show agency computer run.
-Despite buy attention statement create agent.
-Could citizen above budget region that.
-Full area option computer think you.
-Partner machine type so budget sometimes.
-Stuff operation west thing.
-Night board staff west describe blue.
-Chair financial pattern sing serious anyone.
-Would the available plant success.
+Gas produce personal just school.
+Candidate save huge.
+Machine sister degree specific interview.
+Left director enough.
+State north tonight draw others energy read.
+Bill nation sometimes different truth.
+Past view huge month table per.
+Explain important pay yourself budget.
+Whom part about.
+Growth as hour.
+Individual measure issue also last thought front.
