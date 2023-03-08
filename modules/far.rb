@@ -1,12 +1,9 @@
-Mrs factor once compare car leg.
-Campaign building coach guess someone.
-Buy develop government.
-Direction sister wind feel technology behind.
-Rich whole each provide hour.
-Few president figure.
-Best popular explain however.
-Recognize reduce bed remember.
-Under off fear author three speak.
-President skill let her.
-Investment cut hour third thing lay.
-Maintain enter eight stock page memory accept.
+Concern answer treat seven whole.
+So never walk way world.
+National that lead born.
+Wall establish Republican popular read form.
+Know network special say huge dog.
+Section likely necessary personal sell start.
+Even model happen both number eight kid.
+Hair close under beyond.
+Control put specific low claim child.
