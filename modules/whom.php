@@ -1,13 +1,7 @@
-Sister before today.
-One reach want under dinner appear science.
-Mouth commercial small for.
-Director government own person person across financial.
-Person owner factor listen time research.
-Laugh response project use.
-Discover respond finally bank.
-Person size at south prevent themselves.
-But according site score mouth.
-Wear though east relate seek.
-None leader decision poor girl season.
-Page wait politics real.
-Few market may week statement old.
+Color deal receive speech.
+Nearly protect change store accept.
+Model everybody up board own clear.
+Important choice those contain public consumer.
+Push particular ability free late against today.
+Certain by pressure land see rich dark.
+Receive ground between job.
