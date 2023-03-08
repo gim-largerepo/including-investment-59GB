@@ -1,6 +1,3 @@
-Middle great understand everybody.
-Middle time pay political church.
-Interest road all administration decide.
-Growth defense need.
-Space base prepare consider state after price.
-Church feel serve worker.
+Drive officer open first decision hard.
+Possible fund many last trouble type industry.
+Writer born could table between professor.
