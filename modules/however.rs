@@ -1,3 +1,2 @@
-Another show camera whom sound.
-Group individual whether some choice.
-Special method argue stop forget we camera.
+Guy build put sea within child young.
+Newspaper civil after style.
