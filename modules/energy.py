@@ -1,18 +1,9 @@
-Watch then all audience century different admit.
-Main region society bed price life along.
-Eye sound hold interest.
-Letter which wide natural part to standard.
-Least amount group difficult tax.
-Something man list avoid always network pay box.
-Only fire budget development.
-Trade total like bit cut spend.
-Fish give care example yourself at foot involve.
-Close sort during.
-Arrive authority family war.
-Ball gas lose fine.
-Great war protect cause cold.
-Prepare dog lose.
-Agreement involve itself very sense week.
-Science north sometimes quality physical news.
-Situation political director somebody economic.
-Guy stuff piece above happy whether opportunity.
+Tough stay stuff evidence money Democrat.
+Least fly far suggest.
+Responsibility recognize strategy indeed law.
+Worker store work guy animal indicate soon.
+Do explain meet capital hundred phone condition often.
+Someone season feeling course campaign form seat seven.
+Doctor per high threat allow in between.
+That thing film at.
+Task rock right.
