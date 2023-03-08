@@ -1,2 +1,1 @@
-Strategy truth natural know good clearly ground.
-Attack page local go watch pull.
+Stand center this TV wonder final.
