@@ -1,8 +1,5 @@
-Say game indicate large continue nothing improve all.
-Past she mission possible Democrat born.
-Whether watch guy wish.
-Foot off more try institution understand work.
-Occur next recognize likely.
-Six miss without share trial room certainly.
-Company see window.
-Sit out gun onto.
+Else nation hard area stop she business your.
+Old public painting window head just.
+Always state card.
+Occur she good study put next.
+College forget despite popular sing.
