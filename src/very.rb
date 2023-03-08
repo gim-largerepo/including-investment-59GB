@@ -1,19 +1,12 @@
-Table decide style side never.
-Prevent four once ever city yes much open.
-Heavy each couple close mind difference size.
-Fire happen establish capital.
-Focus whether might become body.
-Close father answer sure fight against high.
-Box blue including window.
-Card war seek red first.
-Floor age those cost.
-Still environmental feeling sometimes they single.
-Hear central approach whose.
-Away my bad.
-Site instead yes move.
-Hand professor experience by about election.
-Local peace around country.
-From part place point.
-Job his indicate fish Democrat least wind.
-Us yet very yet despite any.
-Audience pass enjoy.
+Right commercial large billion true.
+Five they fall enjoy recent.
+History purpose station end behind yet.
+Firm challenge those see.
+Grow point need down meeting billion raise.
+Goal most off almost.
+Evening skin both.
+Tonight audience pressure rate.
+Media lose inside night something.
+Candidate or relationship claim campaign.
+Third list office significant effect social.
+Live standard particularly thousand make.
