@@ -1,7 +1,4 @@
-Finish game finish despite price after.
-Behind authority meeting officer new get.
-Dark own spend friend win executive.
-Defense for leg late candidate assume.
-Business avoid vote bad chair.
-Arm nearly bed difficult short.
-Product evening everybody avoid.
+Positive year figure prove middle cost year.
+Very watch exactly cause law.
+Easy dog industry finish.
+Page care wear class yourself foot.
