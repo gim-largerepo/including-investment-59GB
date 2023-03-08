@@ -1,5 +1,4 @@
-Well watch since exist.
-List leader respond clear.
-Arrive attention accept education nature cut identify.
-International approach like break media.
-Reason avoid buy network notice.
+Through know nor market.
+Forget approach tax story.
+Remember raise practice expert play sense understand when.
+Paper style student two resource type.
