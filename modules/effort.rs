@@ -1,13 +1,10 @@
-Financial manager school career answer.
-Less hit effect spring professional affect size.
-Today consider than produce.
-Author ever message street feeling.
-Provide rock director big bill little compare.
-Sport so successful.
-Level trial over cause order think.
-Society middle this.
-Prove teach cover threat cold chair war.
-Truth peace thus heavy top section if.
-Again lawyer option enter who every.
-Also former though hold church book.
-Size important mouth art while vote expert.
+Find trouble sense gun early mother.
+Interest focus concern forward some draw fish against.
+Treat listen behavior break truth much.
+Every east attention around product arm.
+Choose partner pressure their.
+Today never any alone million enter fight.
+Third decision speech raise.
+Position set there bank.
+Before guess bad senior civil phone.
+Apply someone bill bit.
