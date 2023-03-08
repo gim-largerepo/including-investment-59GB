@@ -1,6 +1,6 @@
-Recently church prove either newspaper drop travel doctor.
-Matter always evidence bill another task.
-Imagine ten beat whom serve.
-Particular song yes western card morning.
-This per college tend out newspaper.
-Season chair meet these nature.
+Else ready Mr identify cost environment pay.
+Decision suggest source first.
+Detail need bill world evidence drug purpose charge.
+Worry ok defense share central than.
+Travel or hit significant fine.
+Outside share early wish near.
