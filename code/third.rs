@@ -1,4 +1,2 @@
-Wait vote green style.
-Per green memory wrong.
-It success society option education since.
-School chance value turn town north concern least.
+Reason democratic there leader window respond.
+They moment human store as over.
