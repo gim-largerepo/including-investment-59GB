@@ -1,4 +1,4 @@
-Job care sound democratic.
-Growth arrive assume may herself machine.
-Find throughout always since.
-Dinner garden produce election hear.
+Accept wonder maintain.
+A door seat fish explain as knowledge.
+There behavior relate.
+Either figure there before lot professor understand.
