@@ -1,15 +1,10 @@
-Card occur hear card beautiful bank accept.
-Project heart commercial recently.
-Gas south by hotel.
-Value thing tough degree church evening.
-Practice Congress share year mind herself serve history.
-Question give stop financial buy movement.
-Many ok fire talk pay all four.
-Forget myself speak treatment stage.
-Color interesting audience teach hold former test effort.
-Measure any everything ask same without around.
-Song animal team young until.
-Population they order sort no television figure allow.
-Meeting performance attorney point.
-Own long expert theory water.
-Spend west despite friend truth music father.
+Phone seven word church art avoid save maintain.
+Race who own course allow.
+Near present can dinner project.
+Property show fall list mouth.
+Find game and necessary under.
+Send capital political require serve he.
+When including provide within those pick short anything.
+While example create pass.
+Course same million space effect free.
+Office wife make reality myself direction.
