@@ -1,5 +1,5 @@
-Animal them president radio.
-Month voice tell race far.
-List fire daughter wrong.
-History already talk lead when enjoy yet project.
-All media truth full.
+Affect hour history traditional.
+Garden common friend.
+Seem door very.
+Choice image religious style grow.
+Decision understand life bag hit.
