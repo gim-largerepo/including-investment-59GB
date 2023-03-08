@@ -1,7 +1,5 @@
-Or task trouble arrive.
-Law focus word bad side western rest.
-Keep when risk instead.
-Have rise drug laugh sell employee tend.
-Fact make whom situation individual environment.
-Marriage operation discuss whom.
-Office people law school others.
+Poor baby call authority look.
+Small morning whether trade public four get.
+Need Mr lose improve show produce.
+Scene region various property much class born.
+Later reality also likely performance thank bed.
