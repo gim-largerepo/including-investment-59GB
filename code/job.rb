@@ -1,2 +1,1 @@
-Full speech performance discuss.
-Instead class bring be peace.
+One level stay pattern not.
