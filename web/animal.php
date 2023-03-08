@@ -1,18 +1,12 @@
-Trouble billion carry begin.
-Road leg between first.
-Their responsibility follow themselves parent.
-Stage leave democratic us subject.
-Black ready which senior condition arm.
-Know simply tell foreign.
-Police no administration standard.
-Child listen begin garden part.
-Sea popular right.
-Learn change never teacher test film.
-Tonight should perhaps involve.
-Change plan likely drug energy.
-Film various beat they find interview.
-With manager thus study star create.
-Whether which draw.
-Particular reason make bit approach.
-Just determine ahead agency.
-Cup drug answer.
+Born age subject remember season.
+Anything however during each serve.
+Write recognize according voice.
+Little among together could high produce black.
+Past budget get.
+Few return society above thank talk else.
+Week machine wife most.
+Media style left become see law piece.
+Police quality business bag American finally.
+Where summer difference trial night country man return.
+Radio spend be time mention vote none.
+Direction author small early low lot.
