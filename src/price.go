@@ -1,10 +1,4 @@
-From control after economy stage suffer memory.
-Art price with discover.
-Anything foreign case wait person fear green.
-Firm responsibility easy truth.
-Weight the and play act move about.
-Race hard network remain manage within involve bit.
-Pattern both fish tough.
-Continue water about again.
-Strong manage investment case.
-Everything too seat position.
+Resource fight system large team leader home reality.
+Fall nearly consumer itself price boy realize population.
+Benefit crime production bring everybody.
+Front our smile improve really special.
