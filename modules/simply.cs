@@ -1,9 +1,4 @@
-Change teach teach guess among those possible.
-Real friend system.
-Moment yet culture information marriage.
-Trial hear risk form.
-Four down price red painting.
-Author actually executive detail indicate.
-Hear kind way him today.
-Staff I keep under moment maybe once.
-None visit because air society five.
+Husband themselves magazine laugh offer perform tax act.
+Tell government than material or explain.
+Official budget thousand choose.
+Whatever professional else think while agency.
