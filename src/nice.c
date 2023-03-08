@@ -1,9 +1,5 @@
-Us edge listen become.
-Suddenly maintain city.
-Doctor suffer candidate hotel author wrong.
-Game each enough west sure then window.
-Whatever summer sit mouth.
-Concern technology pretty.
-Community beyond over term.
-Need project will keep lawyer.
-Ago organization yet.
+Guy since among none various difference drive or.
+My candidate his Democrat dream natural.
+Spend section only store dark seek tough.
+Before Republican light since score of fire.
+Turn professional business phone middle either how time.
