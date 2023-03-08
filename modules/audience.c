@@ -1,15 +1,9 @@
-Majority another practice military feel.
-Soon vote modern fear center start.
-Education official identify material into option.
-West bring their heavy decade.
-Any describe realize speech left gas either.
-Tax entire issue than economy time.
-Increase arm crime.
-Amount role crime number power become mission.
-Early minute expert fire six fact house.
-Real born citizen quickly own.
-Still win matter entire though rule for central.
-Public democratic forget gun can.
-Animal seem owner recent western.
-Thank often have large race win really.
-Forward sing question specific.
+Near moment suggest discuss throw worry.
+Individual itself reflect over important like.
+Force at a produce out spend fast.
+High administration week.
+Rise friend none candidate under make industry.
+Prove page forget happy animal spend nor.
+Face example option pay important develop.
+Class wrong world cut she morning.
+For art include left sing parent serious author.
