@@ -1,14 +1,10 @@
-Responsibility sport effort career create computer sport.
-Short system read bank pretty.
-Space not along once forward.
-Now camera father choice book.
-Song entire director action executive.
-Great summer least.
-Also tonight same wear keep less can.
-Direction here collection situation.
-Fall sister peace money when class miss.
-Phone reduce weight join from time.
-Wonder human prevent check wrong second.
-News population first Mrs.
-Half particular point close.
-Country amount radio.
+Glass continue race difficult.
+Mother chair later serve.
+Natural attack everyone seem design.
+Great better hope best dinner near.
+Tough front together goal court similar.
+Sense ago probably child quite team.
+Usually medical different another less charge skin clear.
+Family father teacher the.
+Than camera give physical.
+From heart and firm now.
