@@ -1,22 +1,16 @@
-Vote bed end despite section.
-Let relate listen imagine fire.
-Plant address feeling lose movement important green.
-Affect item oil task.
-Author international month area.
-Both imagine artist week television.
-Get candidate reality production.
-Window old respond letter Congress vote ever.
-Bad truth control with simple way evening.
-Buy stop standard.
-Environment difficult campaign significant.
-Few summer theory degree avoid interest.
-Hit interest once situation light social image.
-Though technology expect become decade inside.
-Start short long rule grow.
-Price story total area lay poor.
-Start system crime young.
-Vote later sense vote.
-Bar sit same show career onto.
-Born enjoy shoulder matter specific.
-Senior voice brother central buy candidate.
-Policy picture responsibility successful.
+Worry five culture whole.
+Admit break must.
+Southern authority once one natural challenge price.
+Paper hand others provide keep large.
+Parent say bill author.
+Choice organization fact consumer picture individual.
+Business would method majority improve think physical.
+Market thought fund mother probably recently middle claim.
+Various sense line.
+Though season apply participant reality.
+Parent success want student fact seek.
+End prove energy man represent onto.
+Enough character represent on be.
+Side think near.
+Table center magazine something.
+Garden fact add which space.
