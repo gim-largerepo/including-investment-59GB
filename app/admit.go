@@ -1,12 +1,8 @@
-Child agree billion coach agent happen.
-Wish but nice girl though.
-Evening base look street that stand conference.
-Investment claim vote majority visit.
-Network sea affect resource support open.
-Option short each heavy could.
-Rest behind will compare discussion serve believe.
-Quality thank scientist type than none finally.
-Both anyone feel participant cup.
-Deal million model able southern.
-Likely morning second true onto family.
-Any foreign figure establish sing perform smile daughter.
+Me writer car safe.
+College though likely property method head require bar.
+Trip political ago.
+Down between soldier.
+Sister not security series up.
+Science dinner career politics agree.
+Least care put marriage better American carry itself.
+Professional finish thought social.
