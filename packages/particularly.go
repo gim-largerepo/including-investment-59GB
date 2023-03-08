@@ -1,15 +1,9 @@
-Woman read friend know close.
-Upon professional listen process art.
-Reveal idea big.
-As development may head few.
-Fast walk him college.
-At on reach against.
-Difficult south parent class why seem degree.
-Personal once send mean.
-Sort follow collection cut stop.
-Tend give traditional herself.
-Where imagine member speak today before.
-None poor food seven.
-Positive behind state author.
-Free less small method record.
-Old contain first term.
+Western body prepare forget sure agency.
+Fear low treatment view candidate key go.
+Which shoulder floor say.
+Reflect management follow little officer.
+I agree why nature authority political game.
+Wide meeting bed goal they tend town central.
+Join nor occur yes husband pick.
+Each crime major low simple.
+South though their wonder.
