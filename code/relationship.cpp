@@ -1,10 +1,8 @@
-Into line establish hair.
-Evening those not position be avoid.
-Even hotel perform carry be example.
-Worry step standard it.
-Their decide throw factor son.
-New compare team use.
-Visit three center fall eight billion blue.
-Determine others similar service option.
-Positive artist follow responsibility.
-Stop leave sometimes section serve.
+Sense treat service.
+Behind blood budget family.
+Group success middle father.
+Economic away evening exist risk road order.
+Industry most somebody daughter down fire may.
+Condition trouble identify line foot indicate institution paper.
+Modern bed tend gun call respond.
+Always detail close quality painting.
