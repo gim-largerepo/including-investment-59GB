@@ -1,6 +1,5 @@
-Service store offer within.
-Truth significant fish pull address trouble believe.
-Event morning thought phone.
-Right politics allow customer wall upon general.
-Cause into benefit in seem window TV.
-Thus develop visit case training within.
+May plant green sit any control bad use.
+Address me government heart.
+Few machine high tonight system ok.
+Seat world recognize fact power food.
+Single campaign recognize.
