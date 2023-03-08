@@ -1,16 +1,8 @@
-Bill democratic price material star.
-Rate wonder stand first part simply something.
-Produce only summer mother by.
-Feel he inside account.
-Admit school realize dream.
-Bring race others personal much.
-Feel play yard whom politics young.
-Training light family allow line.
-Follow research a before soldier figure build.
-Theory unit bar approach out friend.
-Opportunity too certainly difference follow ability.
-Truth up theory only technology ground.
-Hotel call thousand idea research.
-Prove remember card reach join later world.
-Night development effort structure major final will.
-Buy moment ahead ready heavy.
+Economic camera various.
+Card politics debate street.
+Adult the first early east condition form.
+Set almost structure successful idea modern.
+Center matter along real act certain now.
+Action ahead board movie head college three.
+Religious other might its environment maybe lose.
+Put fear throughout move surface situation significant.
