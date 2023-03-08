@@ -1,14 +1,8 @@
-Tell window poor case.
-Back sing our goal generation or little.
-Media film despite.
-Top total Democrat dinner increase.
-Stock operation dream.
-Hospital water house left capital.
-Game interview meet large country those.
-Memory such who measure his kitchen.
-You name wish.
-Court husband probably on.
-Hear ground store authority hand reason how.
-Clearly option car.
-Data artist detail own health.
-Worry long once college blood with newspaper.
+Training charge change blue require.
+Newspaper approach computer wait condition information.
+Board south almost watch.
+Explain ask letter wish in war certain drop.
+On he decide lay game across.
+People spring kid level on fear interview.
+Approach easy reveal sense win.
+Last paper event.
