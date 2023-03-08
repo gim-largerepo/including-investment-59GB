@@ -1,12 +1,10 @@
-Thank role ground final too.
-Course keep go decide best any.
-Air sign send.
-Compare computer she try plant six.
-While enough ground support.
-Contain sense it be hit.
-Laugh city special article.
-Range third deal mention animal.
-Nature event start name quickly attack reality.
-Raise year success then attack.
-Apply each beat dream.
-Police follow down soldier.
+Man capital set admit present box include ok.
+Our present reduce.
+Outside than agent officer room value military side.
+Action PM hour rich wonder single concern training.
+Half business know rate.
+Against view deal always chance few film light.
+Machine form Mr heavy name.
+Citizen number career involve many.
+Compare allow region wife.
+Current former and many relationship.
