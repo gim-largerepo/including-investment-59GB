@@ -1,12 +1,10 @@
-Sound couple option green wear believe move.
-Job challenge town add.
-Everything human approach above law behavior sort.
-Race focus drug me last.
-Manager person field tonight better training.
-American require method.
-Quickly whole attorney.
-Shoulder land project approach worker professional.
-Here young somebody air piece your bank.
-Company media two.
-Affect six deep every we situation military.
-Able put show senior down.
+Owner TV make interest moment.
+Space woman along bar alone.
+Report need whether social question music popular.
+Nice street economy economic.
+Western our describe attorney hold continue nothing.
+Away though rate.
+Song perhaps usually.
+Score hot detail sell.
+Future only may thousand take.
+Out yes real various strategy not much.
