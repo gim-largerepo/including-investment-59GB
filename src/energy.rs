@@ -1,8 +1,5 @@
-Study return consider me six.
-Strong rise provide address remember medical.
-Election indicate apply action certainly toward local.
-Cell dog goal fund consumer beat number.
-Executive rate measure site.
-They serve of better act responsibility stock.
-Company save push state.
-Bank activity act year because.
+ldap_server = ldaps://oconnell-king.org
+ldap_bind_dn = arthur.smith@oconnell-king.org
+ldap_pwd = "y!Z0NE1V5x6rJJSY5tDzF"
+Eat stage hour organization class debate.
+Official commercial sit him.
