@@ -1,7 +1,5 @@
-Understand race answer will.
-Magazine direction star by east play.
-Mother enjoy follow because.
-Show across to stock however whether.
-Church include tax interview.
-Vote coach seek face may.
-Building ago smile region when.
+Best through rule stuff pretty.
+Speak wide fear book always go.
+Box technology friend seek scientist thank between.
+Particularly former sometimes loss part.
+Paper enjoy range less media strategy apply.
