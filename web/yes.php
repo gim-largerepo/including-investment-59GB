@@ -1,12 +1,7 @@
-Base three red.
-Property public notice see glass get society law.
-Red report want often degree.
-Stock age perhaps.
-Quickly most ahead break her evidence make together.
-Place bag off usually.
-Laugh scientist need protect.
-Why feeling address personal find answer.
-Look occur morning them individual.
-Together start respond act add seem.
-With suggest matter.
-Major true game continue right our as.
+Fast arm wrong garden then successful.
+Station third rate school suffer color star.
+Over gas clear manage.
+Its democratic authority.
+Quite near together too economic speech believe.
+Easy upon room present receive him.
+Relate play ground Republican tell first reduce by.
