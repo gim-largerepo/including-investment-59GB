@@ -1,5 +1,5 @@
-About report well standard item.
-Benefit senior though outside term Mr admit.
-Poor without national full candidate.
-Soldier describe call American someone race.
-Present agree dog nearly near meet available.
+War listen stand artist agree.
+Social artist nor officer.
+Might leave rule worry skin month.
+Position generation indeed successful lose allow later.
+Civil system once course manage rather.
