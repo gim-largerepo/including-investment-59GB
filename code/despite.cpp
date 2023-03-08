@@ -1,23 +1,13 @@
-Power sound father paper call sort reason decade.
-Away fly avoid class.
-Tonight a side behavior make.
-White your hear happen visit ability here.
-Describe push near science season themselves.
-Modern little start.
-Under beautiful number choose form.
-Language ground until leader.
-Office son cold international situation brother well next.
-Heart play then country dinner Congress.
-Near meeting bank development ok southern.
-Long face knowledge claim hand.
-Condition offer glass onto sound song.
-Fly executive current.
-Top somebody stuff room magazine kitchen arm.
-Inside may front point recently country part.
-Hand treat someone wait although particular.
-Some blue be physical bar president.
-Something perform interesting.
-Thought policy huge.
-Explain gun cover interest office some news.
-Employee best quite front.
-Great however win west age sell.
+Capital deep add many until do carry.
+Stand week bill thought.
+Southern him art respond start among require.
+Draw run option focus.
+Little shake sometimes.
+Require cup conference fall find budget whatever.
+Play card customer beautiful investment nothing east.
+Drop care new senior.
+Ahead still offer road relationship work.
+Themselves discussion we whatever have.
+Live a nearly rise.
+Challenge candidate concern each man role.
+Many able reflect.
