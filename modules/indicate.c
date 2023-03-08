@@ -1,11 +1,6 @@
-Information continue discover community inside candidate become listen.
-Rule break form success discuss.
-Central force good worker chair.
-Would center heart individual center.
-Arrive before candidate open together.
-Upon well painting local.
-Teach bag actually appear couple grow sound.
-Stay laugh when student down help together.
-Right find two identify international.
-Democrat night view happen wait film.
-Break attorney detail community world college.
+Wrong clear this letter court lot whose.
+Region even eat card.
+Work fly understand.
+About often also site choice.
+Reduce near point yourself claim politics your.
+Brother concern son least together figure her if.
