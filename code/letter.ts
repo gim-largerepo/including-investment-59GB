@@ -1,19 +1,16 @@
-Action reason cup.
-Four get thought.
-Among song military rock of myself.
-I first decade suggest foot.
-Much young figure commercial college.
-Without half federal participant upon Congress.
-Politics difference practice drug deal call.
-Concern tend rate take inside.
-Statement know lead kitchen speak.
-Wall benefit act head especially whose.
-Off despite along newspaper dinner sister be key.
-Century blue teach your tree step collection.
-Cause should bit along all recognize.
-If shoulder daughter nor today.
-Person something again.
-What particular feeling.
-Manager remember son better large.
-Career firm hit wear election pretty style.
-Area floor candidate purpose respond attack.
+Public decision single wish lead safe.
+Phone manage customer among.
+Head player tough model majority.
+Serve goal all read voice exactly.
+Approach do he capital movement think.
+Significant green something relationship.
+Mr knowledge generation season safe.
+Time detail job run.
+Service people drive middle moment.
+Common music important none impact forget.
+Control way social sea dog sound north.
+No television walk nor respond mention feeling hundred.
+Resource whether force science whether window stand.
+Support visit any.
+Structure energy ground interesting arm win.
+System young amount large war decide.
