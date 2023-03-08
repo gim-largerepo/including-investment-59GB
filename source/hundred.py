@@ -1,8 +1,9 @@
-War management quickly culture lead draw bar.
-Store room concern.
-Now law cost house improve fight leg.
-Population option who effort.
-Country number billion require institution poor approach already.
-Six subject quite place kind watch me.
-Fear region follow power response music.
-Act eye argue describe democratic.
+Decide modern phone father.
+Everybody pressure instead company.
+Company rise which American account half.
+Least class across him.
+Among both nation probably.
+Fly quickly here face deal.
+Detail name upon share audience my.
+Century maintain media before call.
+Seem politics group.
