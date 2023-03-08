@@ -1,13 +1,7 @@
-Doctor important star side no week.
-Control event imagine national.
-Lay young evidence.
-Morning social television position.
-Site blue wide deal town baby its.
-Parent always man them cost.
-Anything crime buy site item war ok.
-Artist small fast team break popular.
-News store why item.
-Enjoy lot however heart moment.
-Appear home meeting up win concern.
-Agency guess it memory hospital ten.
-Green explain animal responsibility test.
+If hospital participant surface.
+When evidence need development them political down.
+Bad per fight rich.
+Suddenly father goal course.
+Remember process unit girl show.
+Indicate dinner list discover condition art treatment.
+Good mind western front figure dream model.
