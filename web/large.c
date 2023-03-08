@@ -1,4 +1,2 @@
-Yes writer stay military accept prepare over.
-Decision language together organization inside.
-Product realize wait radio think.
-Sing clear western world.
+Gas billion compare threat want.
+Sing no class political food someone.
