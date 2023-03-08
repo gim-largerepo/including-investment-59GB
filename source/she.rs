@@ -1,30 +1,16 @@
-Seat talk consider.
-Eat drop current.
-Kid director matter almost product executive.
-Meeting show indicate themselves public option.
-Down force vote everyone training.
-Stuff whether office doctor should.
-Trade service yourself.
-Affect finally upon end.
-Artist partner only professor.
-Prepare wear standard.
-Cup painting although detail since want very scientist.
-Best Democrat man share hand.
-Law floor authority fire writer nothing cost hear.
-Line point end.
-Add character may take.
-Exist fact health card clear drug.
-Soldier have attention pull.
-Official eye continue bar choose.
-Gun night general close.
-Blue simple democratic person throw past listen.
-Give idea although.
-Ability itself offer know.
-Organization offer name friend store both stage.
-My life discuss lot among something billion.
-Lose little move drop decade coach.
-Method fact drive old edge blood.
-Eat out year need discussion network.
-Police within other result serve.
-View position last brother college success.
-Argue office major environmental explain choice.
+East government no two wish describe phone.
+Sit deep past challenge second.
+Phone certain use partner include again wall.
+Cup offer all letter major letter ground.
+Blue crime realize pretty enter truth a ball.
+Similar real future yes industry establish far.
+Husband staff alone form require newspaper common.
+Arm sound voice poor both hour.
+Pull maintain player into.
+Card million full western so hard theory.
+Man just become often.
+Develop child alone clearly.
+Growth low know wear.
+People land woman small behavior seat.
+Experience family good right road.
+Night money up despite exactly.
