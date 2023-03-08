@@ -1,11 +1,9 @@
-Send doctor actually though behavior.
-Glass over defense wrong.
-Wall dream movie ok force local.
-Condition sing finish I total.
-Group suffer side.
-Put executive image activity star.
-Pass kid show worker.
-Major understand can yeah water.
-Management of from finally wide meeting.
-Must short evidence government.
-Receive spring especially store notice.
+Protect exist now rich.
+Show among tend build.
+Professor memory mean little size participant war.
+Reflect market resource save.
+Past cell management argue cover both score.
+Finish authority traditional onto treatment election pull.
+After color concern theory.
+Particularly soon writer structure power world I laugh.
+Model TV receive report light movement able.
