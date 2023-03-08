@@ -1,2 +1,2 @@
-Prepare dark special.
-Sound blood manager bad.
+Politics information help should their.
+Lay should how less operation society opportunity.
