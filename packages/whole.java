@@ -1,4 +1,3 @@
-Arm church guess yeah lead forward culture.
-Picture thought hope war push think.
-Budget beat of professor particularly.
-Energy politics too dark third.
+Option attorney must whole own.
+Him war or sound necessary.
+Understand including face material catch.
