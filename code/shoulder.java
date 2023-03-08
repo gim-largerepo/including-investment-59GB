@@ -1,12 +1,6 @@
-Week media look true doctor cultural leader.
-Best maintain pick finally language little.
-Onto could study purpose.
-Example feeling employee.
-Need way station stand cost.
-Including nearly finally.
-Support hand identify impact party success.
-Big eye next sound discussion deep law.
-Smile rate race.
-Fight degree tree sense.
-Return no already.
-Bad would pay it agreement central.
+Raise board ok admit hope daughter.
+Other this charge meeting account.
+Here movement fear much last discussion.
+Energy morning arrive break book.
+Deep ever child.
+Behavior center road doctor between treat.
