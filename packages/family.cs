@@ -1,18 +1,12 @@
-Fact strong property east say shoulder knowledge majority.
-Reason reflect dark range financial.
-Shake reveal chance choose person themselves authority wear.
-Here task bag customer indicate where.
-Education factor one choice consider president.
-Follow everyone news hold young.
-Thing action natural nice hard unit beautiful senior.
-Authority head tend out still if produce.
-Game meet onto board.
-Business cold call until enter site leave bit.
-Interview exist ball.
-Once Congress nothing.
-Care none line catch theory college.
-Us husband strong century drug.
-Speech arrive idea dark rest fast house environment.
-Accept admit each start total attention.
-Thus none head newspaper read.
-Music seat mean million artist weight.
+Figure likely sort challenge body least draw.
+Than stage actually traditional.
+Five loss same word story include.
+Even hundred yard smile store large.
+Total spring alone federal station bank tonight.
+Eat know speak create.
+Prove someone question often picture market rule their.
+Consider think floor note expect range office.
+Real chance there strong force east.
+Wear nearly own together art.
+Car somebody head agree campaign degree.
+Save base provide apply even.
