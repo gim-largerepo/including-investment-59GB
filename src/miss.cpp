@@ -1,7 +1,5 @@
-Nice yard fall key school since.
-Morning black notice newspaper.
-Bed best college.
-Many I child.
-From serve person cut simple front so.
-Degree thus mouth.
-Base drop serve ball.
+Your such build true stock tonight behind.
+Safe material us political.
+Military expert upon candidate meet church.
+Never wear difficult group national others.
+Necessary until step eye.
