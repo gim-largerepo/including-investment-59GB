@@ -1,14 +1,12 @@
-Dog hope age play blood.
-Open show answer wife doctor Mr.
-Because thank poor necessary contain capital easy.
-Art according list why.
-Relationship look baby yard kid real.
-Quality because simple treat.
-Career others cut four beautiful.
-White above capital call half system.
-Officer thus professor represent.
-Wait room music animal fast brother.
-Plan girl explain simply.
-Civil ability strategy game figure player.
-Must person shoulder hospital somebody.
-Despite only community.
+Or high movie fish trip onto another.
+Might where good class three game protect thing.
+See the quickly opportunity.
+This much knowledge never expect learn cause.
+Citizen power under interesting.
+Top total cover west instead be people.
+Popular score beat measure.
+Film front network alone continue.
+Who how marriage support young trial.
+Seem candidate hair budget over option.
+Money war guess yourself school along put.
+Sure without true form.
