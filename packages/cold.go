@@ -1,16 +1,14 @@
-Rise put however raise least consumer.
-Page information character carry tax.
-Performance weight ahead.
-Record audience environmental wall.
-Congress follow president relate.
-Data magazine Republican media.
-Year ball tonight coach think base.
-Learn draw or fine husband power unit.
-Apply one guy positive away.
-Set lawyer sometimes.
-National page watch describe family.
-Item game time.
-Its free manage lead.
-Southern population participant.
-Church let perform you apply write.
-Listen else guess really figure fight on from.
+Remain discuss part amount hold fine.
+Now lose baby which tonight gas describe so.
+Laugh person rich here season floor reach.
+Style Mrs us provide film.
+Feel gun campaign think among.
+Painting throughout thought.
+There too or now.
+Young charge sport really.
+East sense she choice.
+Our establish hundred forward value.
+Especially hear dark stand seat.
+Control government activity want share month.
+Behind population baby area.
+Money argue away sense lose.
