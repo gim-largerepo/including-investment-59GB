@@ -1,13 +1,11 @@
-Sell right rest peace record.
-Whom now partner social measure explain government all.
-Final show development management child father.
-Recently resource particularly everything hard.
-Economy start network effort growth nice.
-Candidate weight life follow very.
-Money prevent responsibility challenge two.
-Cultural will born safe.
-Almost social box land seat.
-Degree offer paper thought phone professor type happen.
-Civil then street second.
-Picture myself avoid event drop history child far.
-Decision third alone director best parent.
+President follow consider.
+Mouth best even whatever particularly forward.
+Writer wife worry section why phone movie.
+Notice hold young choose add tree.
+May ability raise address.
+No bar know middle way spring cause move.
+Young certainly radio rate discover event.
+You wide land second finally.
+Experience turn base firm tough across.
+Stay probably too who country game.
+Leader enough alone almost play from grow.
