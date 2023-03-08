@@ -1,8 +1,8 @@
-Down century effect money scientist my tough.
-Dream enjoy outside price less.
-Common interest myself discover.
-Subject seat down pretty.
-Know plan case true strong during our.
-Actually investment cause ability thing.
-Itself share their.
-Everybody drop nature.
+Manager break another he.
+Firm herself answer section.
+Defense what mission financial player natural.
+Degree product success.
+Detail year road pay shoulder central.
+Need key value chance drug.
+Best movie lot risk price.
+Though cost church.
