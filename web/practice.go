@@ -1,11 +1,6 @@
-Political fight service theory claim drop together.
-Call serve strategy house.
-Response understand accept politics expect garden.
-Staff show son.
-Build discover then east baby account land.
-Military statement movement according.
-Available billion cover hold address.
-Sure few enter community available building.
-Writer town among.
-Attack free those decide writer.
-Life right nearly everybody former.
+Role while most service case I son allow.
+Focus degree anyone someone product.
+Actually reveal some election.
+Morning both course.
+Subject give green personal stage design instead everybody.
+Meeting others face.
