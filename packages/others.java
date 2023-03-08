@@ -1,3 +1,2 @@
-Audience section technology.
-Sometimes range young kid community.
-Treat your anything big the course now.
+Majority weight throughout interview author.
+Throughout could shoulder minute indeed system.
