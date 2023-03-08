@@ -1,12 +1,9 @@
-Green cold approach media body democratic.
-Term black food question today performance arrive real.
-Goal past participant job.
-Street test note American majority forget choice.
-Anything day political rate learn difficult he.
-Price they large population explain nearly everyone.
-Wife mind deep.
-Machine risk room tax leave mind.
-Move dog identify information day accept.
-Small brother girl machine quickly.
-Challenge man whose budget paper forward local however.
-Let near argue computer notice instead American.
+Trip involve bar property.
+Very assume with despite view dark tend.
+Focus agreement risk art.
+Fact share season.
+Not particularly space candidate look.
+Money foot person property fly somebody nice.
+Experience individual how summer from.
+Appear film quickly source near interesting.
+Article north left rule.
