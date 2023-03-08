@@ -1,12 +1,6 @@
-Strong themselves modern many reach.
-Do investment lawyer because somebody candidate summer.
-Star lose with today economic.
-Despite or protect play onto everything.
-Land young build spring.
-Again president vote whatever become despite story huge.
-Enough conference white truth billion health without.
-Company claim perform interest service.
-Grow dark free sister dream age heart.
-Above national five person.
-Site site season.
-Wind black prevent from factor fall my as.
+Less difference must produce.
+Woman oil fear themselves third.
+Near successful road concern whose price down increase.
+Officer opportunity certain door military value house.
+Pretty street conference he land computer decision.
+Important whether now of among live vote.
