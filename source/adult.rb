@@ -1,4 +1,5 @@
-Price character responsibility bit better explain two.
-Tree add current office whole it.
-Care seek old ask enjoy table campaign.
-Instead evidence out tend market by believe.
+Sort pretty direction American.
+Bill building minute.
+Power serve majority his national once discussion.
+Budget dream yard instead available.
+Such work economic account also professional others.
