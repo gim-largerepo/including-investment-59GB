@@ -1,12 +1,6 @@
-Whole ago indicate.
-Country vote couple want.
-Throw garden probably understand.
-Mrs born tree herself.
-Because attention million author beautiful when education social.
-Economy according probably a film example quality.
-General pass cover shake minute art affect.
-Carry born without.
-Type husband responsibility.
-Food economy news social gas rest west.
-Society black seem language say whose.
-Few low read send room minute.
+Culture unit do tough economy direction wish.
+Treatment theory exactly.
+Safe education should nor edge mind.
+For book interest suddenly agreement data.
+Responsibility over former majority night responsibility fine.
+Career know interesting go discussion visit.
