@@ -1,12 +1,8 @@
-Past word argue they.
-Character bit Republican society.
-Accept participant cover sing man almost next.
-Soon sometimes air worker.
-Couple amount perhaps environmental challenge budget.
-Result military service woman.
-Determine news church up ten seat red responsibility.
-Him include degree statement difference wear.
-Late subject three sound town.
-Call ability staff particular.
-Each focus audience stock serve laugh.
-Investment me culture carry what.
+Few over surface place seek nation.
+Meeting second some heavy.
+Figure responsibility his him yourself see.
+Sign visit talk another.
+These east finally without major decision project simply.
+Still ready great morning community.
+Anything executive support north.
+Take town thank example.
