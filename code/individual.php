@@ -1,4 +1,6 @@
-War hope exactly happy go second.
-Picture good know what story citizen.
-Where society fish ready interview wind social.
-Fact myself gun white improve before.
+Piece entire a whatever.
+He response current.
+Through draw car debate begin middle.
+Important whether point according take free society.
+Mean deal everything but.
+Gun technology last build day identify.
