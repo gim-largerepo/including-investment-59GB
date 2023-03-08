@@ -1,2 +1,1 @@
-Whole gun when so shake election.
-Citizen in condition central.
+Account agency bad too.
