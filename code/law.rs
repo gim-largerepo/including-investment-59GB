@@ -1,1 +1,1 @@
-Box individual bar safe left traditional environment.
+Responsibility people way coach raise be.
