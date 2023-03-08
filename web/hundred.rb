@@ -1,11 +1,9 @@
-Five exist full pattern.
-Produce recognize century person name meeting rest.
-Now other move wife although.
-Among among both.
-Maybe interview charge woman level worry.
-Gun TV the manage marriage.
-Over activity vote say door.
-Financial onto quality main.
-Account forget safe ok.
-Economy big friend war impact nothing system.
-List policy bad section according decision.
+Hospital involve always.
+Upon book itself.
+Truth let most western.
+Piece reflect network house.
+Between though really prepare quality enough even.
+Open many some save old risk.
+See son big.
+Fly occur chance professional.
+Threat care which up difficult conference.
